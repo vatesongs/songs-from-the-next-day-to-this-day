@@ -372,6 +372,23 @@ see some thing I didn’t think I’d see, <br>
 at once sense I knew there It’d be, <br>
 and feel I’ve to tell that in rhymes. <br>
 
+That is the glass door of the soul, <br>
+where all gods and sprites live and thrive. <br>
+Those same that made me give and strive, <br>
+those same that’ll make me full and whole.
+
+Please let all past forms and views pass. <br>
+Please meet Them here. First light of dawn,  <br>
+Their forms and Their views will be drawn. <br>
+On this page the soul through the glass.
+
+[...]
+
+They say: “One: good friend. Two: kind mate.” <br>
+Then: “Three: dear love.” Please count past three, <br>
+and add more terms to this list key. <br>
+For Her: “Dog, snake, man.” Then “imp” state.
+
 [...]
 
 That is It. With a blond hair bob, <br>
