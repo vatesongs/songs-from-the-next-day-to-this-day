@@ -367,6 +367,16 @@ _"He is a fool, and a mad man."_
 
 ### Part one
 
+What’s in it for me, should I cease <br>
+to write these songs or write them more. <br>
+When my mind is lost in its war,  <br>
+my next self sends a note of peace.
+
+I can use it to find my way. <br>
+Then there’s the cost of a good deed, <br>
+so I write it for all to read,  <br>
+and see a glimpse of the next day.
+
 I look in to the glass, at times, <br>
 see some thing I didn’t think I’d see, <br>
 at once sense I knew there It’d be, <br>
