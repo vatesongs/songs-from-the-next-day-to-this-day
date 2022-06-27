@@ -394,10 +394,10 @@ On this page the soul through the glass.
 
 [...]
 
-They say: “One: good friend. Two: kind mate.” <br>
-Then: “Three: dear love.” Please count past three, <br>
+They say: "One: good friend. Two: kind mate." <br>
+Then: "Three: dear love." Please count past three, <br>
 and add more terms to this list key. <br>
-For Her: “Dog, snake, man.” Then “imp” state.
+For Her: "Dog, snake, man." Then "imp" state.
 
 [...]
 
@@ -411,9 +411,21 @@ They dream of thee. Thus thou wast sworn. <br>
 Now They be here. Soon in the morn. <br>
 When thou wake Them. Then thou be'st Them."
 
+[...]
+
+Once I was on a bus with boys <br>
+and girls from the land South of Laos. <br>
+The bus stopped in front of a house, <br>
+they went down with a lot of noise.
+
+There I met the snake, a round gnome, <br>
+a nice old man with a short tail, <br>
+a little hair on it, its skin pale. <br>
+The snake took the stairs and went home.
+
 
 ![](svg/book2-part1.svg)
-_"Snake took the stairs and went home."_
+_"The snake took the stairs and went home."_
 
 
 
