@@ -411,6 +411,11 @@ They dream of thee. Thus thou wast sworn. <br>
 Now They be here. Soon in the morn. <br>
 When thou wake Them. Then thou be'st Them."
 
+It’s in front of me in the glass, <br>
+so I turn ‘round and say to Them: <br>
+"Look how nice I am, I’m a gem." <br>
+It wears a wife’s make up with class.
+
 [...]
 
 Once I was on a bus with boys <br>
