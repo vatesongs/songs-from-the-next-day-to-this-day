@@ -365,7 +365,7 @@ _"He is a fool, and a mad man."_
 
 
 
-### Part one
+### Part one, in which we see a glimpse
 
 What’s in it for me, should I cease <br>
 to write these songs or write them more. <br>
