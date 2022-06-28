@@ -411,6 +411,11 @@ They dream of thee. Thus thou wast sworn. <br>
 Now They be here. Soon in the morn. <br>
 When thou wake Them. Then thou be'st Them."
 
+What It wants, can and must are one <br>
+and the same thing, It has no laws. <br>
+"I'm the kid you wish you had, ‘cause <br>
+your ex didn't want your girl or son."
+
 It’s in front of me in the glass, <br>
 so I turn ‘round and say to Them: <br>
 "Look how nice I am, I’m a gem." <br>
