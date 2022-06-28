@@ -367,25 +367,25 @@ _"He is a fool, and a mad man."_
 
 ### Part one, in which we see a glimpse
 
-What’s in it for me, should I cease <br>
+What's in it for me, should I cease <br>
 to write these songs or write them more. <br>
 When my mind is lost in its war,  <br>
 my next self sends a note of peace.
 
 I can use it to find my way. <br>
-Then there’s the cost of a good deed, <br>
+Then there's the cost of a good deed, <br>
 so I write it for all to read,  <br>
 and see a glimpse of the next day.
 
 I look in to the glass, at times, <br>
-see some thing I didn’t think I’d see, <br>
-at once sense I knew there It’d be, <br>
-and feel I’ve to tell that in rhymes. <br>
+see some thing I didn't think I'd see, <br>
+at once sense I knew there It'd be, <br>
+and feel I've to tell that in rhymes. <br>
 
 That is the glass door of the soul, <br>
 where all gods and sprites live and thrive. <br>
 Those same that made me give and strive, <br>
-those same that’ll make me full and whole.
+those same that'll make me full and whole.
 
 Please let all past forms and views pass. <br>
 Please meet Them here. First light of dawn,  <br>
@@ -413,13 +413,13 @@ When thou wake Them. Then thou be'st Them."
 
 What It wants, can and must are one <br>
 and the same thing, It has no laws. <br>
-"I'm the kid you wish you had, ‘cause <br>
+"I'm the kid you wish you had, 'cause <br>
 your ex didn't want your girl or son."
 
-It’s in front of me in the glass, <br>
-so I turn ‘round and say to Them: <br>
-"Look how nice I am, I’m a gem." <br>
-It wears a wife’s make up with class.
+It's in front of me in the glass, <br>
+so I turn 'round and say to Them: <br>
+"Look how nice I am, I'm a gem." <br>
+It wears a wife's make up with class.
 
 [...]
 
@@ -441,6 +441,19 @@ _"The snake took the stairs and went home."_
 
 ### Part two, in which She loves Him back
 
+
+Let's go to the hill of the dream. <br>
+If we look down in to the rocks, <br>
+in the midst of all the stone blocks, <br>
+there we will find a clean hot stream.
+
+In to the hill rocks, from the Earth,  <br>
+Her wet stuff and His hot stuff force <br>
+their way through the stones. From a source <br>
+of pink broth, a creek has its birth.
+
+[...]
+
 From His mouth a long click click sound. <br>
 He moved like a wave, in a dance. <br>
 She was quiet and still, in a trance. <br>
@@ -458,7 +471,7 @@ At night in the house near the creek,  <br>
 She looked at Him, He touched Her cheek. <br>
 She had black skin that shone, was slim.
 
-I’m in awe while I look at Her <br>
+I'm in awe while I look at Her <br>
 trough His eyes and feel His feels. <br>
 She smiled and took off Her white heels. <br>
 She was so fine – I feel the stir
@@ -483,4 +496,4 @@ the spice goes to my blood and brain,
 I feel the end of life, the gloom <br>
 of a fall in the void, and death. <br>
 I think: "No." Now, I catch my breath, <br>
-I’m out of Him, back to my tomb.
+I'm out of Him, back to my tomb.
