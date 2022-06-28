@@ -447,7 +447,7 @@ If we look down in to the rocks, <br>
 in the midst of all the stone blocks, <br>
 there we will find a clean hot stream.
 
-In to the hill rocks, from the Earth,  <br>
+In to the hill rocks, from the Earth, <br>
 Her wet stuff and His hot stuff force <br>
 their way through the stones. From a source <br>
 of pink broth, a creek has its birth.
@@ -466,8 +466,8 @@ two skinks on a log near the creek.
 
 [...]
 
-He thought of Her, She thought of Him.  <br>
-At night in the house near the creek,  <br>
+He thought of Her, She thought of Him. <br>
+At night in the house near the creek, <br>
 She looked at Him, He touched Her cheek. <br>
 She had black skin that shone, was slim.
 
@@ -481,10 +481,17 @@ that She seemed to be from the sky.  <br>
 He pulled Her close – I feel Her thigh. <br>
 He held Her – A fire in my mind,
 
-I feel with His hand Her light dress,  <br>
+I feel with His hand Her light dress, <br>
 and the thews of her arched back.  <br>
 She kissed Him, as in a film, black <br>
 and white, and then She just said: "Yes."
+
+[...]
+
+She wants me to hear Her love screams <br>
+while She is with Him. Oh, how dear, <br>
+how much gold it does cost to hear. <br>
+That’s how She and He haunt my dreams.
 
 [...]
 
