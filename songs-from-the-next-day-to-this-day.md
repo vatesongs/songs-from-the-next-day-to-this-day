@@ -86,8 +86,8 @@ I will watch her face and not yours, <br>
 I will kiss her lips and not yours, <br>
 and I will see you in her eyes.
 
+<img src="svg/book1-part1.svg" width="500" />
 
-![](svg/book1-part1.svg)
 _"My face was lost in to the white."_
 
 
@@ -176,7 +176,8 @@ what you wants, and the same for I. <br>
 You knows what I means, so do I."
 
 
-![](svg/book1-part2.svg)
+<img src="svg/book1-part2.svg" width="500" />
+
 _"Once She sent Her four slaves to trick."_
 
 
@@ -266,7 +267,8 @@ our face whirls down in to that sea. <br>
 
 
 
-![](svg/book1-part3.svg)
+<img src="svg/book1-part3.svg" width="500" />
+
 _"Vast and mute She rose from Her soles."_
 
 
@@ -274,8 +276,8 @@ _"Vast and mute She rose from Her soles."_
 ### Part four, in which we hear His rants
 
 There on Mars, lots of strange men there. <br>
-It\'s hard to hear: "Let\'s take a train," <br>
-They watch me flip: "Let\'s leave this plain." <br>
+It's hard to hear: "Let's take a train," <br>
+They watch me flip: "Let's leave this plain." <br>
 They touch my lip. Where is the air.
 
 He was born there, He was born right, <br>
@@ -354,7 +356,8 @@ tack tick tack, It is the lone sun, <br>
 tick tack, that rose from the black pit.
 
 
-![](svg/book1-part4.svg)
+<img src="svg/book1-part4.svg" width="500" />
+
 _"He is a fool, and a mad man."_
 
 
@@ -434,7 +437,8 @@ a little hair on it, its skin pale. <br>
 The snake took the stairs and went home.
 
 
-![](svg/book2-part1.svg)
+<img src="svg/book2-part1.svg" width="500" />
+
 _"The snake took the stairs and went home."_
 
 
