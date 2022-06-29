@@ -452,6 +452,11 @@ Her wet stuff and His hot stuff force <br>
 their way through the stones. From a source <br>
 of pink broth, a creek has its birth.
 
+To this place She and He bring me. <br>
+There are pink hot tubs down the hill, <br>
+they are there for the creek to fill. <br>
+It goes to the lake, then the sea.
+
 [...]
 
 From His mouth a long click click sound. <br>
