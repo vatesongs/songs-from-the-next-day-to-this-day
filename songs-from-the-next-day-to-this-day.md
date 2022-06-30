@@ -397,13 +397,6 @@ On this page the soul through the glass.
 
 [...]
 
-They say: "One: good friend. Two: kind mate." <br>
-Then: "Three: dear love." Please count past three, <br>
-and add more terms to this list key. <br>
-For Her: "Dog, snake, man." Then "imp" state.
-
-[...]
-
 That is It. With a blond hair bob, <br>
 It flaunts Its self in a pier glass, <br>
 and with a smile It shows Its sass. <br>
@@ -423,6 +416,13 @@ It's in front of me in the glass, <br>
 so I turn 'round and say to Them: <br>
 "Look how nice I am, I'm a gem." <br>
 It wears a wife's make up with class.
+
+[...]
+
+They say: "One: good friend. Two: kind mate." <br>
+Then: "Three: dear love." Please count past three, <br>
+and add more terms to this list key. <br>
+For Her: "Dog, snake, man." Then "imp" state.
 
 [...]
 
