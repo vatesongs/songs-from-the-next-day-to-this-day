@@ -419,6 +419,11 @@ It wears a wife's make up with class.
 
 [...]
 
+He, She, and It show me the riddle, <br>
+the crux, what it does mean and why, <br>
+how to solve it. In fact I try, <br>
+but it’s hard to be in the middle.
+
 They say: "One: good friend. Two: kind mate." <br>
 Then: "Three: dear love." Please count past three, <br>
 and add more terms to this list key. <br>
