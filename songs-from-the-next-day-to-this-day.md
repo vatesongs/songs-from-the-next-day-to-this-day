@@ -451,10 +451,10 @@ They are here more and more, by night  <br>
 and day, in the dreams that I write, <br>
 in the streets as faces in my way.
 
-Let's go to the hill of the dream. <br>
+Let's go to the hill of the dreams. <br>
 If we look down in to the rocks, <br>
 in the midst of all the stone blocks, <br>
-there we will find a clean hot stream.
+there we will find some clean hot streams.
 
 In to the hill rocks, from the Earth, <br>
 Her wet stuff and His hot stuff force <br>
