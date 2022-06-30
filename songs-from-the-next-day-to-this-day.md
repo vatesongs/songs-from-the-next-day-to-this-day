@@ -446,6 +446,11 @@ _"The snake took the stairs and went home."_
 ### Part two, in which She loves Him back
 
 
+Now He and She are here each day.  <br>
+They are here more and more, by night  <br>
+and day, in the dreams that I write, <br>
+in the streets as faces in my way.
+
 Let's go to the hill of the dream. <br>
 If we look down in to the rocks, <br>
 in the midst of all the stone blocks, <br>
