@@ -395,7 +395,10 @@ Please meet Them here. First light of dawn,  <br>
 Their forms and Their views will be drawn. <br>
 On this page the soul through the glass.
 
-[...]
+First we have to meet a new god. <br>
+It hides so deep that we might take <br>
+It for a sprite. Guess what’s Its make. <br>
+When we’ll first see It we’ll be awed.
 
 That is It. With a blond hair bob, <br>
 It flaunts Its self in a pier glass, <br>
