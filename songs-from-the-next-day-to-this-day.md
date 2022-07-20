@@ -383,7 +383,7 @@ and see a glimpse of the next day.
 I look in to the glass, at times, <br>
 see some thing I didn't think I'd see, <br>
 at once sense I knew there It'd be, <br>
-and feel I've to tell that in rhymes. <br>
+and feel I've to tell that in rhymes.
 
 That is the glass door of the soul, <br>
 where all gods and sprites live and thrive. <br>
@@ -397,8 +397,8 @@ On this page the soul through the glass.
 
 First we have to meet a new god. <br>
 It hides so deep that we might take <br>
-It for a sprite. Guess what’s Its make. <br>
-When we’ll first see It we’ll be awed.
+It for a sprite. Guess what's Its make. <br>
+When we’ll first see It, we'll be awed.
 
 That is It. With a blond hair bob, <br>
 It flaunts Its self in a pier glass, <br>
@@ -410,6 +410,21 @@ They dream of thee. Thus thou wast sworn. <br>
 Now They be here. Soon in the morn. <br>
 When thou wake Them. Then thou be'st Them."
 
+"You can’t go to the gym next year. <br>
+You can’t make plans, or leave the strife, <br>
+or change that thing, or change your life. <br>
+Change your self and the world, my dear."
+
+"You’ll eat the head of a live snake, <br>
+with bread, bit by bit. Feel the hate, <br>
+bad taste, and fright, of such a plate. <br>
+It will gross you out, but not break."
+
+When It’s here, It takes all the space. <br>
+"Fais ce que tu doit que pour moi, <br>
+Parce que, en fait, Je suis ton roi." <br>
+It’s my king, I should ask for grace.
+
 What It wants, can and must are one <br>
 and the same thing, It has no laws. <br>
 "I'm the kid you wish you had, 'cause <br>
@@ -420,7 +435,10 @@ so I turn 'round and say to Them: <br>
 "Look how nice I am, I'm a gem." <br>
 It wears a wife's make up with class.
 
-[...]
+"Lei: è già qui, e Lui: è qua." <br>
+It says: "Non è ciò che si fa, <br>
+ciò che non è, ciò che non ha, <br>
+ché il re del sud non ci sta."
 
 He, She, and It show me the riddle, <br>
 the crux, what it does mean and why, <br>
@@ -431,23 +449,6 @@ They say: "One: good friend. Two: kind mate." <br>
 Then: "Three: dear love." Please count past three, <br>
 and add more terms to this list key. <br>
 For Her: "Dog, snake, man." Then "imp" state.
-
-[...]
-
-Once I was on a bus with boys <br>
-and girls from the land South of Laos. <br>
-The bus stopped in front of a house, <br>
-they went down with a lot of noise.
-
-There I met the snake, a round gnome, <br>
-a nice old man with a short tail, <br>
-a little hair on it, its skin pale. <br>
-The snake took the stairs and went home.
-
-
-<img src="svg/book2-part1.svg" width="500" />
-
-_"The snake took the stairs and went home."_
 
 
 
@@ -526,3 +527,26 @@ I feel the end of life, the gloom <br>
 of a fall in the void, and death. <br>
 I think: "No." Now, I catch my breath, <br>
 I'm out of Him, back to my tomb.
+
+
+
+### Part three,
+
+
+[...]
+
+Once I was on a bus with boys <br>
+and girls from the land South of Laos. <br>
+The bus stopped in front of a house, <br>
+they went down with a lot of noise.
+
+There I met the snake, a round gnome, <br>
+a nice old man with a short tail, <br>
+a little hair on it, its skin pale. <br>
+The snake took the stairs and went home.
+
+[...]
+
+<img src="svg/book2-part1.svg" width="500" />
+
+_"The snake took the stairs and went home."_
