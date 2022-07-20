@@ -455,8 +455,18 @@ For Her: "Dog, snake, man." Then "imp" state.
 ### Part two, in which She loves Him back
 
 
-Now He and She are here each day.  <br>
-They are here more and more, by night  <br>
+First, the ones that write these songs want <br>
+to say a few words on the songs. <br>
+Let them say this: "These are pop songs. <br>
+One can get it now, with out taunt,
+
+Or, well, get it on the next day. <br>
+Words from the streets, films and shows give <br>
+the juice of pop, up through a sieve." <br>
+Now let us go back to our play.
+
+Now He and She are here each day. <br>
+They are here more and more, by night <br>
 and day, in the dreams that I write, <br>
 in the streets as faces in my way.
 
@@ -475,8 +485,6 @@ There are pink hot tubs down the hill, <br>
 they are there for the creek to fill. <br>
 To this place She and He bring me.
 
-[...]
-
 From His mouth a long click click sound. <br>
 He moved like a wave, in a dance. <br>
 She was quiet and still, in a trance. <br>
@@ -486,8 +494,6 @@ and held Her down with a soft squeak. <br>
 He felt Her skin, She felt His kiss. <br>
 His tail round Hers. Joined in a bliss, <br>
 two skinks on a log near the creek.
-
-[...]
 
 He thought of Her, She thought of Him. <br>
 At night in the house near the creek, <br>
@@ -509,14 +515,10 @@ and the thews of her arched back.  <br>
 She kissed Him, as in a film, black <br>
 and white, and then She just said: "Yes."
 
-[...]
-
 She wants me to hear Her love screams <br>
 while She is with Him. Oh, how dear, <br>
 how much gold it does cost to hear. <br>
 That’s how She and He haunt my dreams.
-
-[...]
 
 Out on the plain, of course, the rain, <br>
 ‘cause She wished to merge with His heart. <br>
@@ -527,6 +529,11 @@ I feel the end of life, the gloom <br>
 of a fall in the void, and death. <br>
 I think: "No." Now, I catch my breath, <br>
 I'm out of Him, back to my tomb.
+
+I ask to my self where It was. <br>
+I know that It was there. It hides, <br>
+lurks and stalks. It stays on the sides, <br>
+in to the acts with out a cause.
 
 
 
