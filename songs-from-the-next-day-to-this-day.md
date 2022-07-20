@@ -461,8 +461,8 @@ Let them say this: "These are pop songs. <br>
 One can get it now, with out taunt,
 
 Or, well, get it on the next day. <br>
-Words from the streets, films and shows give <br>
-the juice of pop, up through a sieve." <br>
+Feels from the streets, films and shows give <br>
+the scent of pop, up through a sieve." <br>
 Now let us go back to our play.
 
 Now He and She are here each day. <br>
@@ -483,7 +483,7 @@ of pink broth, a creek has its birth.
 It'll go to the lake, then the sea. <br>
 There are pink hot tubs down the hill, <br>
 they are there for the creek to fill. <br>
-To this place She and He bring me.
+To this place She and He brought me.
 
 From His mouth a long click click sound. <br>
 He moved like a wave, in a dance. <br>
