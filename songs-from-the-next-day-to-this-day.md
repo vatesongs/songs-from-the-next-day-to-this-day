@@ -421,7 +421,7 @@ bad taste, and fright, of such a plate. <br>
 It will gross you out, but not break."
 
 When It’s here, It takes all the space. <br>
-"Fais ce que tu doit que pour moi, <br>
+"Fais ce que tu doit que pour Moi, <br>
 Parce que, en fait, Je suis ton roi." <br>
 It’s my king, I should ask for grace.
 
