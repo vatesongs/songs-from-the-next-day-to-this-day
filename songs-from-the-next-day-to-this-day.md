@@ -398,7 +398,7 @@ On this page the soul through the glass.
 First we have to meet a new god. <br>
 It hides so deep that we might take <br>
 It for a sprite. Guess what's Its make. <br>
-When we’ll first see It, we'll be awed.
+When we'll first see It, we'll be awed.
 
 That is It. With a blond hair bob, <br>
 It flaunts Its self in a pier glass, <br>
@@ -410,20 +410,20 @@ They dream of thee. Thus thou wast sworn. <br>
 Now They be here. Soon in the morn. <br>
 When thou wake Them. Then thou be'st Them."
 
-"You can’t go to the gym next year. <br>
-You can’t make plans, or leave the strife, <br>
+"You can't go to the gym next year. <br>
+You can't make plans, or leave the strife, <br>
 or change that thing, or change your life. <br>
 Change your self and the world, my dear."
 
-"You’ll eat the head of a live snake, <br>
+"You'll eat the head of a live snake, <br>
 with bread, bit by bit. Feel the hate, <br>
 bad taste, and fright, of such a plate. <br>
 It will gross you out, but not break."
 
-When It’s here, It takes all the space. <br>
+When It's here, It takes all the space. <br>
 "Fais ce que tu doit que pour Moi, <br>
 Parce que, en fait, Je suis ton roi." <br>
-It’s my king, I should ask for grace.
+It's my king, I should ask for grace.
 
 What It wants, can and must are one <br>
 and the same thing, It has no laws. <br>
@@ -443,7 +443,7 @@ ché il re del sud non ci sta."
 He, She, and It show me the riddle, <br>
 the crux, what it does mean and why, <br>
 how to solve it. In fact I try, <br>
-but it’s hard to be in the middle.
+but it's hard to be in the middle.
 
 They say: "One: good friend. Two: kind mate." <br>
 Then: "Three: dear love." Please count past three, <br>
@@ -518,10 +518,10 @@ and white, and then She just said: "Yes."
 She wants me to hear Her love screams <br>
 while She is with Him. Oh, how dear, <br>
 how much gold it does cost to hear. <br>
-That’s how She and He haunt my dreams.
+That's how She and He haunt my dreams.
 
 Out on the plain, of course, the rain, <br>
-‘cause She wished to merge with His heart. <br>
+'cause She wished to merge with His heart. <br>
 Now, that is too much on my part, <br>
 the spice goes to my blood and brain,
 
@@ -539,6 +539,53 @@ in to the acts with out a cause.
 
 ### Part three,
 
+
+Those that write want to be more in <br>
+this tale, so let them say some thing: <br>
+"You think you know how these words ring, <br>
+the tongue of this script, you read with a grin."
+
+"All this is for the eye that sees. <br>
+So if we write: 'Oh my love, bye.' <br>
+And next we add: 'My love bye bye.' <br>
+If you are so kind to read, please,"
+
+"Just look at the word length, look twice. <br>
+If that is bad rhythm, then we doubt <br>
+it is what you think. Here's the 'trout': <br>
+The rhythm is from the Land of Rice."
+
+Thus they want to make their first sale. <br>
+Be that as it may, stop the spiel <br>
+of those who write, they'll have their meal. <br>
+We want to go on with our tale.
+
+[...]
+
+"If you now look at your In World, <br>
+you think that there is an Out World, <br>
+you think there are two worlds: In World, <br>
+Out World. In fact it's the Same World."
+
+"Call In World the cause of your feels, <br>
+Out World the cause of what you sense. <br>
+If you could just jump the fence, <br>
+if you could just break the seals,"
+
+"You think you would know those Worlds' laws. <br>
+You look at a shade, and you make <br>
+a source in your mind. That's a fake. <br>
+Shades are but shades with out a cause."
+
+"The Same World is but a pale shade, <br>
+but a thin film that can't be seen <br>
+by you. What you think is a screen, <br>
+that is how the Same World is made."
+
+"In that World there is just one man, <br>
+that man can have more than one face. <br>
+With this in mind, look at that place: <br>
+there is no end to what you can."
 
 [...]
 
