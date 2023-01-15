@@ -560,7 +560,35 @@ Be that as it may, stop the spiel <br>
 of those who write, they'll have their meal. <br>
 We want to go on with our tale.
 
-[...]
+There is, on the back of the hill, <br>
+a chasm that leads to a large pit: <br>
+a huge hole in the ground, that's it. <br>
+That day the air was cold and chill.
+
+This hole in the ground is soft black, <br>
+with brown and blue. I felt Its call <br>
+to the depths, to an end less fall. <br>
+There It was, a boy near the crack.
+
+The boy said: "I rose from the hole," <br>
+Its charms dared me to take a leap. <br>
+I looked down in to the dark deep, <br>
+to see the real shape of the soul,
+
+And could not see the ground. I felt <br>
+the pull of the void, saw Her, Him, <br>
+and Them. They wished to know my whim, <br>
+how I'd play the hand that was dealt,
+
+If I could stand. They were 'round me  <br>
+in a ring, They had turned Their backs.  <br>
+The boy said: "Know what your mind lacks." <br>
+"Your life is a ring, what will be"
+
+"Is the cause of what is," It said. <br>
+"On your soul They will leave a mark, <br>
+then They'll fuck off back to the dark <br>
+of the pit." Its voice in my head:
 
 "If you now look at your In World, <br>
 you think that there is an Out World, <br>
