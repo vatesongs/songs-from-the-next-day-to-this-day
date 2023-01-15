@@ -582,6 +582,11 @@ but a thin film that can't be seen <br>
 by you. What you think is a screen, <br>
 that is how the Same World is made."
 
+"Now cut down the tale of the cave <br>
+with an axe: you see, all in all, <br>
+the World is the shade on the wall, <br>
+with out cave, wall, sun, forms, or slave."
+
 "In that World there is just one man, <br>
 that man can have more than one face. <br>
 With this in mind, look at that place: <br>
