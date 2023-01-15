@@ -468,7 +468,7 @@ Now let us go back to our play.
 Now He and She are here each day. <br>
 They are here more and more, by night <br>
 and day, in the dreams that I write, <br>
-in the streets as faces in my way.
+in the streets, a face in my way.
 
 Let's go to the hill of the dreams. <br>
 If we look down in to the rocks, <br>
