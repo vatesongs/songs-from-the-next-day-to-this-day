@@ -94,7 +94,6 @@ _"My face was lost in to the white."_
 
 ### Part two, in which She first calls me
 
-
 It had to be in long lost dreams <br>
 that She first called me from my bed. <br>
 Then Her voice was first in my head <br>
@@ -163,9 +162,9 @@ Her rain hugs me, where is the shore.
 This night She tells me what to write. <br>
 This is Her tale, tale of Their lives. <br>
 I feel shame while I tell these lies, <br>
-and I feel I can't do it right.
+‘cause I feel I can't do it right.
 
-In Her words: "Their lives are just dots, <br>
+In Her words: "Your lives are just dots, <br>
 now you'll find the cause of this day <br>
 in to the next day." "Who are They." <br>
 "They are the key to clear those knots."
@@ -182,12 +181,11 @@ _"Once She sent Her four slaves to trick."_
 
 
 
-
 ### Part three, in which She and He meet
 
 She rose. The cracks were heard for years, <br>
 vast and mute She rose from Her soles, <br>
-the Gods\' gift, the ruin of their souls. <br>
+the Gods' gift, the ruin of the souls. <br>
 There on Earth they weeped and shed tears.
 
 The sky fell on Earth, it was night. <br>
@@ -454,7 +452,6 @@ For Her: "Dog, snake, man." Then "imp" state.
 
 ### Part two, in which She loves Him back
 
-
 First, the ones that write these songs want <br>
 to say a few words on the songs. <br>
 Let them say this: "These are pop songs. <br>
@@ -538,7 +535,6 @@ in to the acts with out a cause.
 
 
 ### Part three, in which we see the World
-
 
 Those that write want to be more in <br>
 this tale, so let them say some thing: <br>
@@ -624,7 +620,6 @@ there is no end to what you can."
 
 ### Part four,
 
-
 [...]
 
 Once I was on a bus with boys <br>
@@ -632,7 +627,7 @@ and girls from the land South of Laos. <br>
 The bus stopped in front of a house, <br>
 they went down with a lot of noise.
 
-There I met the snake, a round gnome, <br>
+There I saw the snake, a round gnome, <br>
 a nice old man with a short tail, <br>
 a little hair on it, its skin pale. <br>
 The snake took the stairs and went home.
