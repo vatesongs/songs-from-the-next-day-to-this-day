@@ -644,6 +644,6 @@ The snake took the stairs and went home.
 
 [...]
 
-<img src="svg/book2-part1.svg" width="500" />
+<img src="svg/book2-part4.svg" width="500" />
 
 _"The snake took the stairs and went home."_
