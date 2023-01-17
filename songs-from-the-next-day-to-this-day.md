@@ -642,7 +642,48 @@ a nice old man with a short tail, <br>
 a little hair on it, its skin pale. <br>
 The snake took the stairs and went home.
 
+To know 'bout the snake's life and task, <br>
+I went to the door step and rang  <br>
+the bell. I heard its long loud clang. <br>
+The snake let me in. I did ask:
+
+"Why Her." "I don't know, I'm a slave. <br>
+I know I like to think of Her <br>
+that sits on my face and moves Her <br>
+hips. Day and night that's what I crave."
+
+"I am just a lewd bald fat guy, <br>
+and I'd like to please my self in <br>
+my back, with a toy made of tin, <br>
+while on Her forms I'd try to spy."
+
+"But here's the thing that makes me mad: <br>
+I think the dog had more of Her <br>
+than me. That's how it lost its fur. <br>
+I’m too shrewd for the game She had."
+
+I had asked 'why' 'cause I know that's <br>
+what all boys and girls want to know. <br>
+That was a lot though, I thought "Whoa, <br>
+the snake did eat a lot of rats."
+
 [...]
+
+I know, I know, those who write <br>
+want to say this: "What's this mind slough, <br>
+why did we have to write this stuff. <br>
+Why should we care 'bout their vile spite."
+
+"Why did we have to ruin this tale. <br>
+Please, talk some sense in to the snake,<br>
+change those words, you know what's at stake."<br>
+Now I have to end their sad wail.
+
+That's Their tale, They tell where to look. <br>
+How would I know why all this stuff, <br>
+or know why the tale got so rough. <br>
+I hope I'll know in the next book.
+
 
 <img src="svg/book2-part4.svg" width="500" />
 
