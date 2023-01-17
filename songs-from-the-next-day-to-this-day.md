@@ -677,7 +677,7 @@ Why should we care 'bout their vile spite."
 "Why did we have to ruin this tale. <br>
 Please, talk some sense in to the snake,<br>
 change those words, you know what's at stake."<br>
-Now I have to end their sad wail.
+Now I have to end that sad wail.
 
 That's Their tale, They tell where to look. <br>
 How would I know why all this stuff, <br>
