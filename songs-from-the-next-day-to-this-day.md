@@ -162,7 +162,7 @@ Her rain hugs me, where is the shore.
 This night She tells me what to write. <br>
 This is Her tale, tale of Their lives. <br>
 I feel shame while I tell these lies, <br>
-‘cause I feel I can't do it right.
+'cause I feel I can't do it right.
 
 In Her words: "Your lives are just dots, <br>
 now you'll find the cause of this day <br>
@@ -619,6 +619,16 @@ there is no end to what you can."
 
 
 ### Part four,
+
+Down the pink creek, past the green lake, <br>
+near the sea, there's one of the towns. <br>
+Full of dust and scents, folks and clowns, <br>
+joy and pain, for a soul to take.
+
+All that a soul may want or dread <br>
+is there. She knows what a soul craves: <br>
+in that town one can find Her slaves, <br>
+and ask 'bout the lives they have led.
 
 [...]
 
