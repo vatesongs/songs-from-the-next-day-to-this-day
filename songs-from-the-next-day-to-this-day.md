@@ -664,7 +664,7 @@ I’m too shrewd for the game She had."
 
 I had asked 'why' 'cause I know that's <br>
 what all boys and girls want to know. <br>
-That was a lot though, I thought "Whoa, <br>
+That was a lot though, I thought: "Whoa, <br>
 the snake did eat a lot of rats."
 
 [...]
