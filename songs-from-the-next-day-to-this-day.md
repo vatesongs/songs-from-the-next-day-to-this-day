@@ -696,7 +696,7 @@ change those words, you know what's at stake."<br>
 Now I have to end that sad wail.
 
 That's Their tale, They tell where to look. <br>
-How could I give sense to this stuff, <br>
+How could I make sense of this stuff, <br>
 or know why the tale got so rough. <br>
 I hope They'll tell in the next book.
 
