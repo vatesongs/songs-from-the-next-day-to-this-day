@@ -675,12 +675,15 @@ I think the dog had more of Her <br>
 than me. That's how it lost its fur. <br>
 I’m too shrewd for the game She had."
 
+The snake went on with: “Now I’m skint.” <br>
+Then: “It’s called Sir Bitch, has no grace. <br>
+It drank Her broth, wants on its face, <br>
+from Her source, if you got my hint.”
+
 I had asked 'why' 'cause I know that's <br>
 what all boys and girls want to know. <br>
 That was a lot though, I thought: "Whoa, <br>
 the snake did eat a lot of rats."
-
-[...]
 
 I know, I know, those who write <br>
 want to say this: "What's this mind slough, <br>
