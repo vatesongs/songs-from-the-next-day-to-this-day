@@ -630,7 +630,20 @@ is there. She knows what a soul craves: <br>
 in that town one can find Her slaves, <br>
 and ask 'bout the lives they have led.
 
-[...]
+She had sent Her slaves to teach me <br>
+when I first met them. They had showed <br>
+in a fake world on a strange road. <br>
+The dog held me, the snake punched me.
+
+A girl friend from the sky was there. <br>
+She showed a kind calm smile with ease, <br>
+I saw Her and fell on my knees. <br>
+Now, back where Her slaves say their prayer.
+
+With their dumb smile and their strange hat, <br>
+‘round that town I can meet the dog, <br>
+called as well Sir Bitch or the hog. <br>
+Now Sir Bitch thinks I’m Her door mat.
 
 Once I was on a bus with boys <br>
 and girls from the land South of Laos. <br>
