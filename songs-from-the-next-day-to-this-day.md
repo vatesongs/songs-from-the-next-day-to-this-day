@@ -623,11 +623,11 @@ there is no end to what you can."
 Down the pink creek, past the green lake, <br>
 near the sea, there's one of the towns. <br>
 Full of dust and scents, folks and clowns, <br>
-joy and pain, for a soul to take.
+joy and pain, all for Her to take.
 
 All that a soul may want or dread <br>
 is there. She knows what a soul craves: <br>
-in that town one can find Her slaves, <br>
+in that town I can find Her slaves, <br>
 and ask 'bout the lives they have led.
 
 She had sent Her slaves to teach me <br>
@@ -635,15 +635,15 @@ when I first met them. They had showed <br>
 in a fake world on a strange road. <br>
 The dog held me, the snake punched me.
 
-A girl friend from the sky was there. <br>
+The girl friend from the sky was there. <br>
 She showed a kind calm smile with ease, <br>
 I saw Her and fell on my knees. <br>
 Now, back where Her slaves say their prayer.
 
-With their dumb smile and their strange hat, <br>
+With its dumb smile and its strange hat, <br>
 ‘round that town I can meet the dog, <br>
 called as well Sir Bitch or the hog. <br>
-Now Sir Bitch thinks I’m Her door mat.
+Now Sir Bitch thinks I’m Her floor mat.
 
 Once I was on a bus with boys <br>
 and girls from the land South of Laos. <br>
@@ -656,11 +656,11 @@ a little hair on it, its skin pale. <br>
 The snake took the stairs and went home.
 
 To know 'bout the snake's life and task, <br>
-I went to the door step and rang  <br>
+I went to the door step and rang <br>
 the bell. I heard its long loud clang. <br>
-The snake let me in. I did ask:
+Snake let me in. I had to ask:
 
-"Why Her." "I don't know, I'm a slave. <br>
+"Why Her." "I don't know, I'm Her slave. <br>
 I know I like to think of Her <br>
 that sits on my face and moves Her <br>
 hips. Day and night that's what I crave."
@@ -675,7 +675,7 @@ I think the dog had more of Her <br>
 than me. That's how it lost its fur. <br>
 I’m too shrewd for the game She had."
 
-The snake went on with: “Now I’m skint.” <br>
+The snake went on: “But now I’m skint.” <br>
 Then: “It’s called Sir Bitch, has no grace. <br>
 It drank Her broth, wants on its face, <br>
 from Her source, if you got my hint.”
@@ -696,9 +696,9 @@ change those words, you know what's at stake."<br>
 Now I have to end that sad wail.
 
 That's Their tale, They tell where to look. <br>
-How would I know why all this stuff, <br>
+How could I give sense to this stuff, <br>
 or know why the tale got so rough. <br>
-I hope I'll know in the next book.
+I hope They'll tell in the next book.
 
 
 <img src="svg/book2-part4.svg" width="500" />
