@@ -632,7 +632,7 @@ there is no end to what you can."
 
 <img src="svg/book2-part3.svg" width="500" />
 
-_"The boy said: 'I rose from the hole,'"_
+_"The boy said: 'I rose from the hole.'"_
 
 
 
