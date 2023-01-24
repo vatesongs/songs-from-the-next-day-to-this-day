@@ -450,6 +450,12 @@ For Her: "Dog, snake, man." Then "imp" state.
 
 
 
+<img src="svg/book2-part1.svg" width="500" />
+
+_"You'll eat the head of a live snake."_
+
+
+
 ### Part two, in which She loves Him back
 
 First, the ones that write these songs want <br>
@@ -534,6 +540,12 @@ in to the acts with out a cause.
 
 
 
+<img src="svg/book2-part2.svg" width="500" />
+
+_"He thought of Her, She thought of Him."_
+
+
+
 ### Part three, in which we see the World
 
 Those that write want to be more in <br>
@@ -615,6 +627,12 @@ with out cave, wall, sun, forms, or slave."
 that man can have more than one face. <br>
 With this in mind, look at that place: <br>
 there is no end to what you can."
+
+
+
+<img src="svg/book2-part3.svg" width="500" />
+
+_"The boy said: 'I rose from the hole,'"_
 
 
 
