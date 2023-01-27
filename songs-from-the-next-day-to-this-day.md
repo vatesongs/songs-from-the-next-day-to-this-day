@@ -749,5 +749,8 @@ you can’t just put it on the shelf. <br>
 That self is slain and is no more."
 
 
+<img src="svg/book3-part1.svg" width="500" />
+
+
 
 ### Part two, in which
