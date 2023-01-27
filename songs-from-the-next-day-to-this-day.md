@@ -722,3 +722,32 @@ I hope They'll tell in the next book.
 <img src="svg/book2-part4.svg" width="500" />
 
 _"The snake took the stairs and went home."_
+
+
+
+
+
+## Book three, in which
+
+
+
+### Part one, in which
+
+"I know you had ten years to fall, <br>
+you lived in the past with out aim. <br>
+And then ten years to mourn in shame, <br>
+that was not a dance or a ball."
+
+"You knew change isn't a piece of cake, <br>
+it is not a walk in the park, <br>
+a show of pomp. It is a dark <br>
+path full of woe, it is a wake."
+
+"Change of the world is a raw gore. <br>
+You have to part from the old self, <br>
+you can’t just put it on the shelf. <br>
+That self is slain and is no more."
+
+
+
+### Part two, in which
