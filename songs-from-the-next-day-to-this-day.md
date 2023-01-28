@@ -733,6 +733,9 @@ _"The snake took the stairs and went home."_
 
 ### Part one, in which we have a chat
 
+
+[...]
+
 "I know you had ten years to fall, <br>
 you lived in the past with out aim. <br>
 And then ten years to mourn in shame, <br>
@@ -748,8 +751,18 @@ You have to part from the old self, <br>
 you can’t just put it on the shelf. <br>
 That self is slain and is no more."
 
+[...]
+
+"Of course it was such a hard chore, <br>
+and all folks know that, man, no doubt. <br>
+But now you've got to chill out, <br>
+you can't still be such a huge bore."
+
+[...]
 
 <img src="svg/book3-part1.svg" width="500" />
+
+_"You can't still be such a huge bore."_
 
 
 
