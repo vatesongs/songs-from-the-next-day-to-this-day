@@ -766,4 +766,18 @@ _"You can't still be such a huge bore."_
 
 
 
-### Part two, in which
+### Part two, in which we think of You
+
+[...]
+
+Once I met a cute girl for sale <br>
+and she said: "I know you want me." <br>
+I said: "With you, how could it be. <br>
+Then I will want to lift your veil
+
+and kiss you in front of the priest, <br>
+and say: 'With you for all my life, <br>
+I do want you to be my wife,' <br>
+and dance with you at the feast."
+
+[...]
