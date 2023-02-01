@@ -773,11 +773,18 @@ _"You can't still be such a huge bore."_
 Once I met a cute girl for sale <br>
 and she said: "I know you want me." <br>
 I said: "With you, how could it be. <br>
-Then I will want to lift your veil
+Then I will want to lift your veil"
 
-and kiss you in front of the priest, <br>
+"And kiss you in front of the priest, <br>
 and say: 'With you for all my life, <br>
 I do want you to be my wife,' <br>
 and dance with you at the feast."
+
+[...]
+
+She thought it was a joke, she laughed. <br>
+"Babe, just for a small piece of gold <br>
+for you I can be what I'm told <br>
+to be. So let me show my craft."
 
 [...]
