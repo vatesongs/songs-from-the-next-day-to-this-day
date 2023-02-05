@@ -787,9 +787,9 @@ She thought it was a joke, she laughed. <br>
 for you I can be what I'm told <br>
 to be. So let me show my craft."
 
-Then she said "I will be your wife". 
-I thought she was a sign from You,
-sent to let me know what to do.
+Then she said "I will be your wife". <br>
+I thought she was a sign from You, <br>
+sent to let me know what to do. <br>
 So we talked of my times of strife.
 
 [...]
