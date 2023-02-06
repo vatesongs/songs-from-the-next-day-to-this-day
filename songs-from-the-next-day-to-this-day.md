@@ -806,3 +806,7 @@ So I bragged of my feats and deeds, <br>
 I told Her all my griefs and joys.
 
 [...]
+
+<img src="svg/book3-part2.svg" width="500" />
+
+_"Once I met a cute girl for sale."_
