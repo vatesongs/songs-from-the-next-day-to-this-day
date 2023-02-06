@@ -792,4 +792,9 @@ I thought she was a sign from You, <br>
 sent to let me know what to do. <br>
 So we talked of my times of strife.
 
+"You want me more, the more you talk. <br>
+Lie down, rest you head on my lap. <br>
+If you want you can take a nap, <br>
+just know that I am on the clock."
+
 [...]
