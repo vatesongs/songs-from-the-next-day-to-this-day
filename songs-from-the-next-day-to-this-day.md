@@ -780,7 +780,10 @@ and say: 'With you for all my life, <br>
 I do want you to be my wife,' <br>
 and dance with you at the feast."
 
-[...]
+"I can’t sleep with you. If I stay <br>
+with you once, then I’ll want to stay <br>
+with you all nights. I’ll want a way <br>
+to be yours, I was made that way."
 
 She thought it was a joke, she laughed. <br>
 "Babe, just for a small piece of gold <br>
