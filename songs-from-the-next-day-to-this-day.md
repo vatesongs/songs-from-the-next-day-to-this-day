@@ -797,4 +797,9 @@ Lie down, rest you head on my lap. <br>
 If you want you can take a nap, <br>
 just know that I am on the clock."
 
+I loved her curves, her grace, her poise, <br>
+the way she touched her neck lace beads. <br>
+So I bragged of my feats and deeds, <br>
+I told Her all my griefs and joys.
+
 [...]
