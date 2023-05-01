@@ -760,6 +760,18 @@ you can't still be such a huge bore."
 
 [...]
 
+"You tried all things to stop the fall. <br>
+You fell, now you fly with your wit. <br>
+Real fall waits for you in the pit: <br>
+at its end the woe, the hard wall."
+
+"So now you can cry for that fall, <br>
+fore see your ruin your life your mess <br>
+with a mind full of strife and stress. <br>
+But know that the pit got Them all."
+
+[...]
+
 <img src="svg/book3-part1.svg" width="500" />
 
 _"You can't still be such a huge bore."_
