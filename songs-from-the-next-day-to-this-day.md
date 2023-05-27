@@ -780,6 +780,14 @@ _"You can't still be such a huge bore."_
 
 ### Part two, in which we think of You
 
+
+[...]
+
+They say You are not real, not true. <br>
+In some sense, me too, I lost hope. <br>
+Your signs are all I get to cope. <br>
+It would be nice to talk to You.
+
 [...]
 
 Once I met a cute girl for sale <br>
