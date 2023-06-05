@@ -744,6 +744,11 @@ Now to me She is nice and kind, <br>
 like a soft spring breeze on my mind. <br>
 "You can cross a street, you know how."
 
+She says, for He left me mid way, <br>
+once on Mars, while He crossed a road, <br>
+‘cause He thought that His walk I slowed. <br>
+At the end I did cross that day.
+
 [...]
 
 "I know you had ten years to fall, <br>
