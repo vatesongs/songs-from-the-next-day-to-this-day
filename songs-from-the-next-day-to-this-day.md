@@ -734,6 +734,16 @@ _"The snake took the stairs and went home."_
 ### Part one, in which we have a chat
 
 
+So I can talk to Them, that’s strange, <br>
+strange that They want to talk with me. <br>
+It, He, She, They all heard my plea. <br>
+I ask my self if that will change,
+
+ask what They will want from me now. <br>
+Now to me She is nice and kind, <br>
+like a soft spring breeze on my mind. <br>
+"You can cross a street, you know how."
+
 [...]
 
 "I know you had ten years to fall, <br>
