@@ -8,7 +8,7 @@
 
 Now I have to tell that one thing, <br>
 and show how it all starts and still <br>
-I beg for your sparkle and your skill. <br>
+I beg for your spark and your skill. <br>
 This tale, let me know how to sing.
 
 That was the place, or so it seems. <br>
