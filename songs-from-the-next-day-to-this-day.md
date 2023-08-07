@@ -659,9 +659,9 @@ I saw Her and fell on my knees. <br>
 Now, back where Her slaves say their prayer.
 
 With its dumb smile and its strange hat, <br>
-‘round that town I can meet the dog, <br>
+'round that town I can meet the dog, <br>
 called as well Sir Bitch or the hog. <br>
-Now Sir Bitch thinks I’m Her floor mat.
+Now Sir Bitch thinks I'm Her floor mat.
 
 Once I was on a bus with boys <br>
 and girls from the land South of Laos. <br>
@@ -691,12 +691,12 @@ while on Her forms I'd try to spy."
 "But here's the thing that makes me mad: <br>
 I think the dog had more of Her <br>
 than me. That's how it lost its fur. <br>
-I’m too shrewd for the game She had."
+I'm too shrewd for the game She had."
 
-The snake went on: “But now I’m skint.” <br>
-Then: “It’s called Sir Bitch, has no grace. <br>
+The snake went on: "But now I'm skint." <br>
+Then: "It's called Sir Bitch, has no grace. <br>
 It drank Her broth, wants on its face, <br>
-from Her source, if you got my hint.”
+from Her source, if you got my hint."
 
 I had asked 'why' 'cause I know that's <br>
 what all boys and girls want to know. <br>
@@ -734,7 +734,7 @@ _"The snake took the stairs and went home."_
 ### Part one, in which we have a chat
 
 
-So I can talk to Them, that’s strange, <br>
+So I can talk to Them, that's strange, <br>
 strange that They want to talk with me. <br>
 It, He, She, They all heard my plea. <br>
 I ask my self if that will change,
@@ -746,7 +746,7 @@ like a soft spring breeze on my mind. <br>
 
 She says, for He left me mid way, <br>
 once on Mars, while He crossed a road, <br>
-‘cause He thought that His walk I slowed. <br>
+'cause He thought that His walk I slowed. <br>
 At the end I did cross that day.
 
 [...]
@@ -763,7 +763,7 @@ path full of woe, it is a wake."
 
 "Change of the world is a raw gore. <br>
 You have to part from the old self, <br>
-you can’t just put it on the shelf. <br>
+you can't just put it on the shelf. <br>
 That self is slain and is no more."
 
 [...]
@@ -793,7 +793,64 @@ _"You can't still be such a huge bore."_
 
 
 
-### Part two, in which we think of You
+### Part two, in which we talk 'bout signs
+
+
+It says: "You went to Him to ask: <br>
+'老師, please tell me what to do.' <br>
+'There's a wall to paint,' He told you, <br>
+'So for now that will be your task.'"
+
+"You went there and put some paint <br>
+on that wall. 'That is the wrong shade. <br>
+So, as it was it should have stayed,' <br>
+He said: 'Now take off all that paint.'"
+
+"So you scraped the paint off the wall, <br>
+went back, and asked: '老師, what now.' <br>
+He laughed: 'So you look for the tao. <br>
+First you have to look at the wall.'"
+
+"'For how long.' Now His voice was staid: <br>
+'You have to look at it for real. <br>
+Just know that the first step is zeal: <br>
+you stop when you know the right shade.'"
+
+"You stared at the wall for ten years. <br>
+For ten long years you looked and thought <br>
+'bout that wall, 'bout each crack and dot. <br>
+Some days you felt well, some in tears,"
+
+"Some days you would think: 'I know now,' <br>
+'cause you knew each small bulge and glow. <br>
+Then you would think: 'I do not know.' <br>
+And one day you knew why and how."
+
+"That day you went to Him and said: <br>
+'老師, now I know the right shade.' <br>
+'很好, that first step you have made. <br>
+Go live your life, or go to bed.'"
+
+"'For now you can let the wall be.' <br>
+He said. And you: 'But now I want <br>
+to paint the wall.' 'Right. If you want, <br>
+go paint the wall, and let Me be.'"
+
+[...]
+
+It says: "You still think of the art <br>
+of the worlds, that some folks called 'signs.' <br>
+Why you still think 'bout those ink lines. <br>
+Now she is dead, they killed her heart."
+
+"Now when folks look back they just say: <br>
+'It was right back then that she died.' <br>
+Right when the new goal was to hide, <br>
+the new rule to stop those who stray."
+
+
+
+### Part three, in which we think of You
 
 
 [...]
@@ -815,9 +872,9 @@ and say: 'With you for all my life, <br>
 I do want you to be my wife,' <br>
 and dance with you at the feast."
 
-"I can’t sleep with you. If I stay <br>
-with you once, then I’ll want to stay <br>
-with you all nights. I’ll want a way <br>
+"I can't sleep with you. If I stay <br>
+with you once, then I'll want to stay <br>
+with you all nights. I'll want a way <br>
 to be yours, I was made that way."
 
 She thought it was a joke, she laughed. <br>
