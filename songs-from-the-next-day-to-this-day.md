@@ -796,6 +796,16 @@ _"You can't still be such a huge bore."_
 ### Part two, in which we talk 'bout signs
 
 
+It says: "Once You looked at His hands, <br>
+and He made the sign with three sides, <br>
+that means the girl’s deep eye that hides. <br>
+So you searched for girls on all lands."
+
+"And for a while you did feel cool. <br>
+But that search left you void and dry, <br>
+‘cause to each girl you had to lie. <br>
+Each girl was a hand, or a tool."
+
 It says: "You went to Him to ask: <br>
 '老師, please tell me what to do.' <br>
 'There's a wall to paint,' He told you, <br>
