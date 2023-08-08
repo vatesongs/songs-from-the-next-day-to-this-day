@@ -66,7 +66,7 @@ place where they live, they'll make you fight. <br>
 Lift the cloth and they'll see the light, <br>
 like flies from meat you'll see them spark."
 
-The little girl winked in her heeled shoes, <br>
+The lil girl winked in her heeled shoes, <br>
 and smiled from the back of a guy. <br>
 Soon I had to wish them good bye, <br>
 so soon they went. I had no clues.
