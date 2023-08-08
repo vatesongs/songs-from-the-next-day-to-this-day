@@ -34,7 +34,7 @@ lone talked, in fact the list is vast.
 When I tried to make its bark cease <br>
 the mad dog brought me to the East. <br>
 I hate this self of mine, this beast <br>
-that lurks and gives me no peace.
+that lurks, barks and gives me no peace.
 
 At night I would sit with my cheek <br>
 on my fist. I would wait for you, <br>
