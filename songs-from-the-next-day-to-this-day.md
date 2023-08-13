@@ -749,7 +749,20 @@ once on Mars, while He crossed a road, <br>
 'cause He thought that His walk I slowed. <br>
 At the end I did cross that day.
 
-[...]
+She is so good and sweet to me. <br>
+She's like the taste of that gold fruit, <br>
+She's like the sound of an elf flute. <br>
+'Cause of some spell, She heard my plea.
+
+Now She smiles: "Fine, let's play your game," <br>
+She says. I say: "夫人, thank you <br>
+for your help." So if I feel blue <br>
+I can tell Her that with no shame.
+
+I know that She gave me that choice: <br>
+when I fall, I tell Her. She’ll wink. <br>
+Now it’s His turn to speak, I think <br>
+He likes the sound of His own voice.
 
 "I know you had ten years to fall, <br>
 you lived in the past with out aim. <br>
@@ -798,12 +811,12 @@ _"You can't still be such a huge bore."_
 
 It says: "Once You looked at His hands, <br>
 and He made the sign with three sides, <br>
-that means the girl’s deep eye that hides. <br>
+that means the girl's deep eye that hides. <br>
 So you searched for girls on all lands."
 
 "And for a while you did feel cool. <br>
 But that search left you void and dry, <br>
-‘cause to each girl you had to lie. <br>
+'cause to each girl you had to lie. <br>
 Each girl was a hand, or a tool."
 
 It says: "You went to Him to ask: <br>
