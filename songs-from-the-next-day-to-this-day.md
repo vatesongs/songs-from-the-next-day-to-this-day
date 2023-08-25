@@ -760,8 +760,8 @@ for your help." So if I feel blue <br>
 I can tell Her that with no shame.
 
 I know that She gave me that choice: <br>
-when I fall, I tell Her. She’ll wink. <br>
-Now it’s His turn to speak, I think <br>
+when I fall, I tell Her. She'll wink. <br>
+Now it's His turn to speak, I think <br>
 He likes the sound of His own voice.
 
 "I know you had ten years to fall, <br>
@@ -858,6 +858,21 @@ Go live your life, or go to bed.'"
 He said. And you: 'But now I want <br>
 to paint the wall.' 'Right. If you want, <br>
 go paint the wall, and let Me be.'"
+
+"You did paint the wall, and liked it. <br>
+You asked the folks, and they liked it. <br>
+So you asked Him if the shade fit. <br>
+He said: 'You should learn when to quit.'"
+
+"'But the folks like the wall now, so <br>
+what's next.' He said 'Now you take down <br>
+that damn wall for real, sort of a clown.' <br>
+You took down the wall with the blow"
+
+"of a club, or it is still there <br>
+as a sign that you can paint walls, <br>
+as a place where you cry your falls, <br>
+and you can still go there and stare."
 
 [...]
 
