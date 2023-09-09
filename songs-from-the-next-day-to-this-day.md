@@ -935,6 +935,21 @@ the way she touched her neck lace beads. <br>
 So I bragged of my feats and deeds, <br>
 I told Her all my griefs and joys.
 
+I told her how much I liked her, <br>
+how nice she was. She heard me out, <br>
+with a blank face, with out a doubt. <br>
+Then she smiled and said: "Thank you, sir."
+
+"Now time's up, do you have more gold." <br>
+"Fair dame, that was my last gold, please <br>
+can I talk with you with out fees, <br>
+can I be with you, let's grow old."
+
+"Babe, you know you can't be with me <br>
+with out fee, you think with your groin. <br>
+But if you want I'll choose the coin, <br>
+I'll make you feel pain, that's my fee."
+
 [...]
 
 <img src="svg/book3-part2.svg" width="500" />
