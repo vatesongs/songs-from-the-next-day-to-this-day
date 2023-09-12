@@ -891,14 +891,10 @@ the new rule to stop those who stray."
 ### Part three, in which we think of You
 
 
-[...]
-
 They say You are not real, not true. <br>
 In some sense, me too, I lost hope. <br>
 Your signs are all I get to cope. <br>
 It would be nice to talk to You.
-
-[...]
 
 Once I met a cute girl for sale <br>
 and she said: "I know you want me." <br>
@@ -950,7 +946,30 @@ with out fee, you think with your groin. <br>
 But if you want I'll choose the coin, <br>
 I'll make you feel pain, that's my fee."
 
-[...]
+"I'll give you pain up to a point, <br>
+up to the load that you can stand. <br>
+Then a lil more. Give me your hand, <br>
+thus I'll be your wife in this joint."
+
+I thought I'd lose her, so I said: <br>
+"I want that." "Pain will write my name <br>
+on your soul for good. Like a flame <br>
+it will brand you. Thus we'll be wed."
+
+"Now I'll go sleep with my boy friend." <br>
+A void at my tum. "See, you cling. <br>
+You are not yet fit for this thing." <br>
+She said. "So, for now that's the end."
+
+"You'll lift the veil and see the source <br>
+of all thoughts and feels, ‘cause of me. <br>
+Folks will call you mad, they won't see <br>
+what you saw. That will be your force."
+
+So they walked, her carved legs, her heels. <br>
+He had a nice smile, the right guy, <br>
+he shook my hand and said good bye. <br>
+Did You send her to test my feels.
 
 <img src="svg/book3-part2.svg" width="500" />
 
