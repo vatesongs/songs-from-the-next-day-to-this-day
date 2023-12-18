@@ -962,7 +962,7 @@ You are not yet fit for this thing." <br>
 She said. "So, for now that's the end."
 
 "You'll lift the veil and see the source <br>
-of all thoughts and feels, ‘cause of me. <br>
+of all thoughts and feels, 'cause of me. <br>
 Folks will call you mad, they won't see <br>
 what you saw. That will be your force."
 
@@ -974,3 +974,37 @@ Did You send her to test my feels.
 <img src="svg/book3-part2.svg" width="500" />
 
 _"Once I met a cute girl for sale."_
+
+
+### Part four,
+
+
+[...]
+
+Now I see You, I see Your mind, <br>
+when I look back to my ten years <br>
+of shame. I was frail, full of fears <br>
+and grief, a snow flake of a kind.
+
+I thought that to fail is to end. <br>
+So you sent a guy with its lust. <br>
+It said it liked me, I could trust <br>
+that in me it had found a friend.
+
+I was lone and I had to feel good, <br>
+so for a while I talked to it. <br>
+I saw some red flags, I tried to quit, <br>
+while I was as kind as I could.
+
+It could not take a no from me, <br>
+'cause I’m haute, a sylph, a nymph, but <br>
+I’m low, I’m a hole, a whore slut. <br>
+I am what it needs to break free.
+
+[...]
+
+
+It says: "Of course you know you could <br>
+take a life, if you had lost hope. <br>
+'Cause they take all your ways to cope, <br>
+so they say that you are not good."
