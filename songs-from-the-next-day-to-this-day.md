@@ -997,14 +997,38 @@ I saw some red flags, I tried to quit, <br>
 while I was as kind as I could.
 
 It could not take a no from me, <br>
-'cause I’m haute, a sylph, a nymph, but <br>
-I’m low, I’m a hole, a whore slut. <br>
+'cause I'm haute, a sylph, a nymph, but <br>
+I'm low, I'm a hole, a whore slut. <br>
 I am what it needs to break free.
 
 [...]
 
+It says: "Don't give your ear to those <br>
+that say that you would hurt a femme, <br>
+'cause they want you to kill for them, <br>
+they want to keep you on your toes."
 
 It says: "Of course you know you could <br>
 take a life, if you had lost hope. <br>
 'Cause they take all your ways to cope, <br>
 so they say that you are not good."
+
+"'Cause they force you to feed the beast. <br>
+You don't know how to handle the rage, <br>
+but you must keep it in the cage. <br>
+So at the end you are the beast."
+
+"But if lost you'd first end your life, <br>
+then a man's life, then a girl's life, <br>
+a kid's. First on your throat the knife. <br>
+You can find that the stats are rife."
+
+"But once you saw the mad beast, free, <br>
+out of the cage. You were with your ex. <br>
+Lots of tears and much thirst for sex, <br>
+'cause 'she did cheat and lie to me.'"
+
+"For months you had been like a shit <br>
+on her path. You told her: 'Now I <br>
+take you or this is a good bye. <br>
+I'll use you, you'll stay and sit.'"
