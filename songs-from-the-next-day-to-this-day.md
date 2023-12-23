@@ -1032,3 +1032,10 @@ Lots of tears and much thirst for sex, <br>
 on her path. You told her: 'Now I <br>
 take you or this is a good bye. <br>
 I'll use you, you'll stay and sit.'"
+
+"You said: 'If you leave now I'll be <br>
+your boy friend no more,' and she stayed. <br>
+Then you talked with her 'bout this trade. <br>
+You thought what you did had to be."
+
+[...]
