@@ -1039,3 +1039,18 @@ Then you talked with her 'bout this trade. <br>
 You thought what you did had to be."
 
 [...]
+
+It says: "Think this. You'll be a mum. <br>
+And as your dad taught you the way <br>
+to find your gold, so you could play <br>
+free from him and Him, and then some,"
+
+"You'll have to teach your son the way <br>
+to find his feels, so that he will <br>
+be free from your past and Her skill. <br>
+In this way he won't be a prey,"
+
+"'cause he won't have to ask a femme <br>
+who he is, should he go or stay. <br>
+In this way he won't have to prey. <br>
+Such will be the long peace with Them."
