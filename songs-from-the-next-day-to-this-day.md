@@ -1038,7 +1038,10 @@ your boy friend no more,' and she stayed. <br>
 Then you talked with her 'bout this trade. <br>
 You thought what you did had to be."
 
-[...]
+"Then so much she had got from you. <br>
+But much more she took 'cause of this, <br>
+a piece of soul that you still miss, <br>
+'cause you were wrong and you both knew."
 
 It says: "Think this. You'll be a mum. <br>
 And as your dad taught you the way <br>
