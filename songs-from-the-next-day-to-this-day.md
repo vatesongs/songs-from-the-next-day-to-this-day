@@ -874,12 +874,15 @@ as a sign that you can paint walls, <br>
 as a place where you cry your falls, <br>
 and you can still go there and stare."
 
-[...]
-
 It says: "You still think of the art <br>
 of the things, that some folks called 'signs.' <br>
 Why you still think 'bout those ink lines. <br>
 Now she is dead, they killed her heart."
+
+"You mourn for the art of the things. <br>
+It will be a tale for kids then, <br>
+like those of the gods, of the men. <br>
+Why do you cry for your lost strings."
 
 "Now when folks look back they just say: <br>
 'It was right back then that she died.' <br>
