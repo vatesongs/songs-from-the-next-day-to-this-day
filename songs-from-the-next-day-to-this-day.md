@@ -877,7 +877,7 @@ and you can still go there and stare."
 [...]
 
 It says: "You still think of the art <br>
-of the worlds, that some folks called 'signs.' <br>
+of the things, that some folks called 'signs.' <br>
 Why you still think 'bout those ink lines. <br>
 Now she is dead, they killed her heart."
 
