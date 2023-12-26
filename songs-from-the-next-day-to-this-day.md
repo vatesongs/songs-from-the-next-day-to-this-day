@@ -979,8 +979,6 @@ _"Once I met a cute girl for sale."_
 ### Part four, in which we see the beast
 
 
-[...]
-
 Now I see You, I see Your mind, <br>
 when I look back to my ten years <br>
 of shame. I was frail, full of fears <br>
@@ -1001,7 +999,10 @@ It could not take a no from me, <br>
 I'm low, I'm a hole, a whore slut. <br>
 I am what it needs to break free.
 
-[...]
+"It will have me or it'll break me, <br>
+it will bring more shame to my kin." <br>
+I felt its eyes crawl on my skin, <br>
+and more mad thoughts got in to me.
 
 It says: "Don't give your ear to those <br>
 that say that you would hurt a femme, <br>
