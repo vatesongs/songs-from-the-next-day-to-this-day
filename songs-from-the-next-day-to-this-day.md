@@ -734,6 +734,13 @@ _"The snake took the stairs and went home."_
 ### Part one, in which we have a chat
 
 
+"These are signs and dreams of the next day. <br>
+With these songs They will make the world. <br>
+These words line the times that were curled. <br>
+You should know your part in this play."
+
+[...]
+
 So I can talk to Them, that's strange, <br>
 strange that They want to talk with me. <br>
 It, He, She, They all heard my plea. <br>
@@ -778,6 +785,16 @@ path full of woe, it is a wake."
 You have to part from the old self, <br>
 you can't just put it on the shelf. <br>
 That self is slain and is no more."
+
+She and He give sense to the path. <br>
+I don't know if I can tell Him <br>
+'bout my falls, 'cause He will get grim, <br>
+so I would see His scorn or wrath.
+
+He would say that life is a fall <br>
+to the death, a rule He can't bend. <br>
+That I'll lose and die at the end. <br>
+But when I fall He sees me crawl.
 
 [...]
 
