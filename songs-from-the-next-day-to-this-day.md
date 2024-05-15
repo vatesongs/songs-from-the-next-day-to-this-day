@@ -739,7 +739,10 @@ With these songs They will make the world. <br>
 These words line the times that were curled. <br>
 You should know your part in this play."
 
-[...]
+"Should see the fine lines that were curled. <br>
+You'll know when you'll love part and play. <br>
+Then you'll know 'bout your next day. <br>
+And you'll see the fall of the world."
 
 So I can talk to Them, that's strange, <br>
 strange that They want to talk with me. <br>
@@ -796,14 +799,10 @@ to the death, a rule He can't bend. <br>
 That I'll lose and die at the end. <br>
 But when I fall He sees me crawl.
 
-[...]
-
 "Of course it was such a hard chore, <br>
 and all folks know that, man, no doubt. <br>
 But now you've got to chill out, <br>
 you can't still be such a huge bore."
-
-[...]
 
 "You tried all things to stop the fall. <br>
 You fell, now you fly with your wit. <br>
@@ -814,8 +813,6 @@ at its end the woe, the hard wall."
 fore see your ruin your life your mess <br>
 with a mind full of strife and stress. <br>
 But know that the pit got Them all."
-
-[...]
 
 <img src="svg/book3-part1.svg" width="500" />
 
