@@ -8,7 +8,7 @@
 
 Now I have to tell that one thing, <br>
 and show how it all starts and still <br>
-I beg for your spark and your skill. <br>
+I beg for Your spark and Your skill. <br>
 This tale, let me know how to sing.
 
 That was the place, or so it seems. <br>
@@ -37,26 +37,26 @@ I hate this self of mine, this beast <br>
 that lurks, barks and gives me no peace.
 
 At night I would sit with my cheek <br>
-on my fist. I would wait for you, <br>
+on my fist. I would wait for You, <br>
 one day they will do the same too. <br>
 From me the kind love of the weak.
 
 If I look back and think the way, <br>
 I see that I have been in search <br>
-of you, still am. Left in the lurch, <br>
+of You, still am. Left in the lurch, <br>
 I ask what was that made me stray.
 
 It was that land or sea, that soul, <br>
-where I saw you smile, where I saw <br>
-a kid with your eyes and his awe. <br>
-There a girl with your hands that stole
+where I saw You smile, where I saw <br>
+a kid with Your eyes and his awe. <br>
+There a girl with Your hands that stole
 
 Thoughts, fast as the throw of a dart, <br>
-men with your smile that let me rest. <br>
+men with Your smile that let me rest. <br>
 And each time I slept on the chest <br>
-of the night, 'cause she had your heart.
+of the night, 'cause she had Your heart.
 
-And I know it was you that girl <br>
+And I know it was You that girl <br>
 on sale, to whom I once told all <br>
 this tale, while she looked at my fall. <br>
 "Hear if you want," she held her pearl,
@@ -72,19 +72,19 @@ Soon I had to wish them good bye, <br>
 so soon they went. I had no clues.
 
 While I look at the world, I hope <br>
-that you are here. When I will find <br>
-you, and feel your touch on my mind, <br>
+that You are here. When I will find <br>
+You, and feel Your touch on my mind, <br>
 I will no more go down that slope,
 
-Where in search of you I did choke. <br>
-With you I will have back my breath. <br>
-Or I will not find you and death <br>
+Where in search of You I did choke. <br>
+With You I will have back my breath. <br>
+Or I will not find You and death <br>
 will be here now with her black cloak,
 
 The dark night with no stars nor skies. <br>
-I will watch her face and not yours, <br>
-I will kiss her lips and not yours, <br>
-and I will see you in her eyes.
+I will watch her face and not Yours, <br>
+I will kiss her lips and not Yours, <br>
+and I will see You in her eyes.
 
 <img src="svg/book1-part1.svg" width="500" />
 
@@ -823,7 +823,7 @@ _"You can't still be such a huge bore."_
 ### Part two, in which we talk 'bout signs
 
 
-It says: "Once You looked at His hands, <br>
+It says: "Once you looked at His hands, <br>
 and He made the sign with three sides, <br>
 that means the girl's deep eye that hides. <br>
 So you searched for girls on all lands."
