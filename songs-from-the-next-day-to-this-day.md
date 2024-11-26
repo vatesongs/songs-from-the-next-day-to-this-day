@@ -1075,3 +1075,97 @@ In this way he won't be a prey,"
 who he is, should he go or stay. <br>
 In this way he won't have to prey. <br>
 Such will be the long peace with Them."
+
+
+## Book four, in which
+
+
+### Part one, in which
+
+Low is the name and Low is high <br>
+and cute like some lil' girl or boy. <br>
+Toes on my lips, I am Low's toy. <br>
+In that dream Low says: "You should cry,"
+
+'Cause I begged Low to let me beg, <br>
+but still I can't cry for my life. <br>
+Low is quick and sharp like a knife, <br>
+I'll be the small dog near Low's leg.
+
+[...]
+
+Low looks at me with a large lens, <br>
+smiles and irks 'cause I'm a foul worm, <br>
+found on Low's last walk on a berm. <br>
+I pray that Low will help me cleanse.
+
+I hope that Low will not crush me <br>
+with toes, but I crave to be felt <br>
+by the "piè dal ciel", and Low's belt. <br>
+I wouldn't turn, that will set me free.
+
+[...]
+
+Am I bad 'cause I want to taste <br>
+Low's dirt, dream to feast on that treat, <br>
+and feel the joy of that sweet heat, <br>
+so that I can get clean and chaste.
+
+[...]
+
+I'll play with Low if I can bow, <br>
+and Low's grace and gifts will be rife, <br>
+I will meet real fire in my life. <br>
+Low'll bring me fire, 'cause fire is Low,
+
+If I try and do as I'm told. <br>
+I will not get crushed or get burned, <br>
+when to be Low's serf I'll have learned. <br>
+Low is fire, Low is love and gold.
+
+Low'll tame and give the beast a name <br>
+with knout and words, those'll be our dates. <br>
+And use the lame beast to lift weights, <br>
+that will be Low's cut of the game.
+
+[...]
+
+I'll give my feels as gifts to Low, <br>
+my pain and joy, and Low will give <br>
+back new joy and new pain. I'll live <br>
+for Low and I'll bask in Low's glow.
+
+At least that's just my dream and hope, <br>
+'cause Low will tell who will do what. <br>
+So I should just keep my mouth shut, <br>
+try my best to take note and cope.
+
+Those who have some one can't know who <br>
+is Low the hot and the wise, hence <br>
+those who are lone can't get Low's sense, <br>
+love, life, and time. 'Cause Low is You.
+
+[...]
+
+Life, Love, Sense, and Time are Your slaves. <br>
+Where is my life, where love and time, <br>
+which sense do they have past my prime. <br>
+Please help this lost soul through these waves.
+
+
+### Part two, in which
+
+Those who write want to know if there <br>
+is or there will be some one out <br>
+there that can get these lines. They doubt. <br>
+They will make their case, let them air.
+
+May be they want praise for this play, <br>
+cause they say: "It's not a new way <br>
+to say the same, but a new play." <br>
+They say: "Think 'bout it when we say:"
+
+"'My queen looks so fair and so kind <br>
+when she greets some one, that each tongue <br>
+shakes and is mute, each gaze feels wrong, <br>
+the eyes dare not look and are blind.'"
