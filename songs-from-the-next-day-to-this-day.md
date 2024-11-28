@@ -1110,7 +1110,7 @@ I wouldn't turn, that will set me free.
 Please, have I gone mad with lust, cause <br>
 I want to put gold at Low's feet, <br>
 more and more gold, cause if we'll meet <br>
-I’ll ask and beg to feel Low's tawse.
+I'll ask and beg to feel Low's tawse.
 
 Am I bad 'cause I want to taste <br>
 Low's dirt, dream to feast on that treat, <br>
@@ -1119,8 +1119,8 @@ so that I can get clean and chaste.
 
 Low says that I seem a stray dog <br>
 used to whims and crumbs. I'm more scared <br>
-of Low’s touch, and of Low’s warmth shared, <br>
-much more than of Low’s will to flog.
+of Low's touch, and of Low's warmth shared, <br>
+much more than of Low's will to flog.
 
 [...]
 
@@ -1178,3 +1178,8 @@ They say: "Think 'bout it when we say:"
 when she greets some one, that each tongue <br>
 shakes and is mute, each gaze feels wrong, <br>
 the eyes dare not look and are blind.'"
+
+Now let us get back to this tale,
+since in real life I did meet Low.
+Low did not know or had doubt, though,
+'bout Low's god's self and Low's grand scale.
