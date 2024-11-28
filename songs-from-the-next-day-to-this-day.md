@@ -1125,7 +1125,7 @@ much more than of Low’s will to flog.
 [...]
 
 Low'll tame and give the beast a name <br>
-with knout and words, those'll be our dates. <br>
+with grace and knout, those'll be our dates. <br>
 And use the lame beast to lift weights, <br>
 that will be Low's cut of the game.
 
