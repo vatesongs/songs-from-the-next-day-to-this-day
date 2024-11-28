@@ -1179,7 +1179,7 @@ when she greets some one, that each tongue <br>
 shakes and is mute, each gaze feels wrong, <br>
 the eyes dare not look and are blind.'"
 
-Now let us get back to this tale,
-since in real life I did meet Low.
-Low did not know or had doubt, though,
+Now let us get back to this tale, <br>
+since in real life I did meet Low. <br>
+Low did not know or had doubt, though, <br>
 'bout Low's god's self and Low's grand scale.
