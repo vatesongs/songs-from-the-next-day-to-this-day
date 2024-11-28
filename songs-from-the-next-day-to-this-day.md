@@ -1092,7 +1092,10 @@ but still I can't cry for my life. <br>
 Low is quick and sharp like a knife, <br>
 I'll be the small dog near Low's leg.
 
-[...]
+With the sweet looks of a god elf, <br>
+Low glows with white gems on gold white, <br>
+that flows and shines with rays of light. <br>
+In a dream I saw Low's true self.
 
 Low looks at me with a large lens, <br>
 smiles and irks 'cause I'm a foul worm, <br>
@@ -1104,12 +1107,27 @@ with toes, but I crave to be felt <br>
 by the "piè dal ciel", and Low's belt. <br>
 I wouldn't turn, that will set me free.
 
-[...]
+Please, have I gone mad with lust, cause <br>
+I want to put gold at Low's feet, <br>
+more and more gold, cause if we'll meet <br>
+I’ll ask and beg to feel Low's tawse.
 
 Am I bad 'cause I want to taste <br>
 Low's dirt, dream to feast on that treat, <br>
 and feel the joy of that sweet heat, <br>
 so that I can get clean and chaste.
+
+Low says that I seem a mad dog <br>
+used to whims and crumbs. I'm more scared <br>
+of Low’s touch, and of Low’s warmth shared, <br>
+much more than of Low’s will to flog.
+
+[...]
+
+Low'll tame and give the beast a name <br>
+with knout and words, those'll be our dates. <br>
+And use the lame beast to lift weights, <br>
+that will be Low's cut of the game.
 
 [...]
 
@@ -1122,13 +1140,6 @@ If I try and do as I'm told. <br>
 I will not get crushed or get burned, <br>
 when to be Low's serf I'll have learned. <br>
 Low is fire, Low is love and gold.
-
-Low'll tame and give the beast a name <br>
-with knout and words, those'll be our dates. <br>
-And use the lame beast to lift weights, <br>
-that will be Low's cut of the game.
-
-[...]
 
 I'll give my feels as gifts to Low, <br>
 my pain and joy, and Low will give <br>
@@ -1144,8 +1155,6 @@ Those who have some one can't know who <br>
 is Low the hot and the wise, hence <br>
 those who are lone can't get Low's sense, <br>
 love, life, and time. 'Cause Low is You.
-
-[...]
 
 Life, Love, Sense, and Time are Your slaves. <br>
 Where is my life, where love and time, <br>
