@@ -1117,7 +1117,7 @@ Low's dirt, dream to feast on that treat, <br>
 and feel the joy of that sweet heat, <br>
 so that I can get clean and chaste.
 
-Low says that I seem a mad dog <br>
+Low says that I seem a stray dog <br>
 used to whims and crumbs. I'm more scared <br>
 of Low’s touch, and of Low’s warmth shared, <br>
 much more than of Low’s will to flog.
