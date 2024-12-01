@@ -1183,4 +1183,9 @@ the eyes dare not look and are blind.'"
 Now let us get back to this tale, <br>
 since in real life I did meet Low. <br>
 Low did not know or had doubt, though, <br>
-'bout Low's god's self and Low's grand scale.
+'bout Low's God's self and Low's grand scale.
+
+Low’s self as a God. Low will show. <br>
+Then the face of Low will be God’s face, <br>
+and Low will know and take God’s place. <br>
+All doubts will be banned by Low’s glow.
