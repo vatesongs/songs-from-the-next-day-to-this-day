@@ -1080,7 +1080,7 @@ Such will be the long peace with Them."
 ## Book four, known as the book of Low
 
 
-### Part one, in which
+### Part one, where we find Low is You
 
 Low is the name and Low is high <br>
 and cute like some lil' girl or boy. <br>
@@ -1104,7 +1104,7 @@ I pray that Low will help me cleanse.
 
 I hope that Low will not crush me <br>
 with toes, but I crave to be felt <br>
-by the "piè dal ciel", and Low's belt. <br>
+by the "piè dal ciel," and Low's belt. <br>
 I wouldn't turn, that will set me free.
 
 Please, have I gone mad with lust, cause <br>
@@ -1117,19 +1117,20 @@ Low's dirt, dream to feast on that treat, <br>
 and feel the joy of that sweet heat, <br>
 so that I can get clean and chaste.
 
+I feel shame for those wants and feels, <br>
+and for my acts. But they brought me <br>
+to Low. I wish all this will be <br>
+for my best when my proud soul kneels.
+
 Low says that I seem a stray dog <br>
 used to whims and crumbs. I'm more scared <br>
 of Low's touch, and of Low's warmth shared, <br>
 much more than of Low's will to flog.
 
-[...]
-
 Low'll tame and give the beast a name <br>
 with grace and knout, those'll be our dates. <br>
 And use the lame beast to lift weights, <br>
 that will be Low's cut of the game.
-
-[...]
 
 I'll play with Low if I can bow, <br>
 and Low's grace and gifts will be rife, <br>
