@@ -988,7 +988,7 @@ He had a nice smile, the right guy, <br>
 he shook my hand and said good bye. <br>
 Did You send her to test my feels.
 
-<img src="svg/book3-part2.svg" width="500" />
+<img src="svg/book3-part3.svg" width="500" />
 
 _"Once I met a cute girl for sale."_
 
