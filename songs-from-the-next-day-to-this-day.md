@@ -1162,6 +1162,10 @@ Where is my life, where love and time, <br>
 which sense do they have past my prime. <br>
 Please help this lost soul through these waves.
 
+<img src="svg/book4-part1.svg" width="500" />
+
+_"Toes on my lips, I am Low's toy."_
+
 
 ### Part two, in which
 
