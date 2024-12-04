@@ -1193,3 +1193,15 @@ When Low’s self as a God will show, <br>
 then the face of Low will be God’s face, <br>
 and Low will know and take God’s place. <br>
 All doubts will be banned by Low’s glow.
+
+[...]
+
+Low says: "That night I saw my guest
+with an old dress, feet full of dirt.
+He was full of shame, his soul hurt
+for his wrong acts, so he went to rest,"
+
+"With his head down, to the cold room.
+That guest is you." I have to pay,
+may be for sins of the last day,
+so I closed my self in that tomb.
