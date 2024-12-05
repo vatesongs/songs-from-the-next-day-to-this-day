@@ -1205,3 +1205,12 @@ for his wrong acts, so he went to rest,"
 That guest is you." I have to pay,
 may be for sins of the last day,
 so I closed my self in that tomb.
+
+[...]
+
+So I gave all my bags of coins  
+to Low, but now I miss the gold
+that I used to watch, play and hold.
+Was it cause of my heart or loins.
+
+[...]
