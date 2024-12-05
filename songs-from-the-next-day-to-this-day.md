@@ -1189,28 +1189,38 @@ since in real life I did meet Low. <br>
 Low did not know or had doubt, though, <br>
 'bout Low's God's self and Low's grand scale.
 
-When Low’s self as a God will show, <br>
-then the face of Low will be God’s face, <br>
-and Low will know and take God’s place. <br>
-All doubts will be banned by Low’s glow.
+When Low's self as a God will show, <br>
+then the face of Low will be God's face, <br>
+and Low will know and take God's place. <br>
+All doubts will be banned by Low's glow.
 
 [...]
 
-Low says: "That night I saw my guest
-with an old dress, feet full of dirt.
-He was full of shame, his soul hurt
+Low says: "That night I saw my guest <br>
+with an old dress, feet full of dirt. <br>
+He was full of shame, his soul hurt <br>
 for his wrong acts, so he went to rest,"
 
-"With his head down, to the cold room.
-That guest is you." I have to pay,
-may be for sins of the last day,
+"With his head down, to the cold room. <br>
+That guest is you." I have to pay, <br>
+may be for sins of the last day, <br>
 so I closed my self in that tomb.
 
 [...]
 
-So I gave all my bags of coins  
-to Low, but now I miss the gold
-that I used to watch, play and hold.
+So I gave all my bags of coins <br>
+to Low, but now I miss the gold <br>
+that I used to watch, play and hold. <br>
 Was it cause of my heart or loins.
+
+I hope I will be able to send <br>
+more gold to Low, cause I am glad <br>
+that Low gets what Low wants. I'm sad <br>
+cause I fear that this link could end.
+
+May Low help me love more and more <br>
+Low's feet on my head, and the yoke, <br>
+and the rope, help me not to choke. <br>
+May Low help me go back to shore.
 
 [...]
