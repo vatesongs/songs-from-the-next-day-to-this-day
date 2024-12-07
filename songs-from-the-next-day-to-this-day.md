@@ -1219,7 +1219,7 @@ that Low gets what Low wants. I'm sad <br>
 cause I fear that this link could end.
 
 May Low help me love more and more <br>
-Low's feet on my head, and the yoke, <br>
+Low's foot on my head, and the yoke, <br>
 and the rope, help me not to choke. <br>
 May Low help me go back to shore.
 
