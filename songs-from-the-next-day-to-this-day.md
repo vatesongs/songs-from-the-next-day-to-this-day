@@ -1223,4 +1223,9 @@ Low's foot on my head, and the yoke, <br>
 and the rope, help me not to choke. <br>
 May Low help me go back to shore.
 
+So I told Low that I am weak, <br>
+so is my faith. Now I’m turned on, <br>
+cause I think Low’ll make me Low’s pawn, <br>
+cause Low’s feet showed me what I seek.
+
 [...]
