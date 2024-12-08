@@ -1104,7 +1104,7 @@ I pray that Low will help me cleanse.
 
 I hope that Low will not crush me <br>
 with toes, but I crave to be felt <br>
-by the "piè dal ciel," and Low's belt. <br>
+"dal piè dal ciel," and by Low's belt. <br>
 I wouldn't turn, that will set me free.
 
 Please, have I gone mad with lust, cause <br>
