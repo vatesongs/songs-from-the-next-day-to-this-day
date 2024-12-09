@@ -1196,7 +1196,7 @@ All doubts will be banned by Low's glow.
 
 [...]
 
-Low says: "That night I saw my guest <br>
+Low says: "That night I saw My guest <br>
 with an old dress, feet full of dirt. <br>
 He was full of shame, his soul hurt <br>
 for his wrong acts, so he went to rest,"
@@ -1235,7 +1235,7 @@ Low said. "You're a stray dog, but know <br>
 you'll eat with Me too. You'll do so <br>
 when I'll take you in from the street."
 
-"You will take my gifts as my pet, <br>
+"You will take My boons as My pet, <br>
 and know you will have what you need <br>
 when you need it. I'll be you creed." <br>
 For all this I'll be in Low's debt.
