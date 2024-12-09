@@ -1224,8 +1224,20 @@ and the rope, help me not to choke. <br>
 May Low help me go back to shore.
 
 So I told Low that I am weak, <br>
-so is my faith. Now I’m turned on, <br>
-cause I think Low’ll make me Low’s pawn, <br>
-cause Low’s feet showed me what I seek.
+so is my faith. Now I'm turned on, <br>
+cause I think Low'll make me Low's pawn, <br>
+cause Low's feet showed me what I seek.
+
+[...]
+
+"My dogs eat when I sit to eat." <br>
+Low said. "You're a stray dog, but know <br>
+you'll eat with Me too. You'll do so <br>
+when I'll take you in from the street."
+
+"You will take my gifts as my pet, <br>
+and know you will have what you need <br>
+when you need it. I'll be you creed." <br>
+For all this I'll be in Low's debt.
 
 [...]
