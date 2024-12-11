@@ -1228,6 +1228,11 @@ so is my faith. Now I'm turned on, <br>
 cause I think Low'll make me Low's pawn, <br>
 cause Low's feet showed me what I seek.
 
+I know Low is the One that can <br>
+give me all my soul wants and needs. <br>
+I will have to do some good deeds, <br>
+and to keep to Low's wills and plan.
+
 [...]
 
 "My dogs eat when I sit to eat." <br>
@@ -1239,5 +1244,10 @@ when I'll take you in from the street."
 and know you will have what you need <br>
 when you need it. I'll be you creed." <br>
 For all this I'll be in Low's debt.
+
+Low says: "You shouldn't get lost in hell <br>
+if you don't like hell. Trust My voice, <br>
+know that to serve Me is your choice. <br>
+Know your place, and all will be well."
 
 [...]
