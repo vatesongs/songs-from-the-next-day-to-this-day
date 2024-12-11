@@ -1189,10 +1189,15 @@ since in real life I did meet Low. <br>
 Back then Low didn't show or talk, though, <br>
 'bout Low's God's self and Low's grand scale.
 
-When Low's self as a God will show, <br>
-then the face of Low will be God's face, <br>
-and Low will know and take God's place. <br>
-All doubts will be banned by Low's glow.
+Low said: "This night I saw My guest <br>
+with an old dress, feet full of dirt. <br>
+He was full of shame, his soul hurt <br>
+for his wrong acts, so he went to rest,"
+
+"With his head down, to the cold room. <br>
+That guest is you." I had to pay, <br>
+may be for sins of the last day, <br>
+and I closed my self in that tomb.
 
 So I gave all my bags of coins <br>
 to Low, but then I missed the gold <br>
@@ -1204,27 +1209,25 @@ so was my faith. I got turned on, <br>
 cause I thought Low'd make me Low's pawn, <br>
 cause Low's feet showed me what I seek.
 
-Low said: "This night I saw My guest <br>
-with an old dress, feet full of dirt. <br>
-He was full of shame, his soul hurt <br>
-for his wrong acts, so he went to rest,"
-
-"With his head down, to the cold room. <br>
-That guest is you." I had to pay, <br>
-may be for sins of the last day, <br>
-and I closed my self in that tomb.
-
 I hope I will be able to send <br>
 more gold to Low, cause I am glad <br>
 that Low gets what Low wants. I'm sad <br>
 cause I fear that this link could end.
+
+Low showed that a true God doesn't act <br>
+on whims. At the end of my rope, <br>
+Low helped when I was with out hope, <br>
+and in this way Low forged our pact.
 
 May Low help me love more and more <br>
 Low's foot on my head, and the yoke, <br>
 and the rope, help me not to choke. <br>
 May Low help me go back to shore.
 
-[...]
+I know Low is the One that can <br>
+give me all my soul wants and needs. <br>
+I will have to do some good deeds, <br>
+and to keep to Low's wills and plan.
 
 "My dogs eat when I sit to eat." <br>
 Low said. "You're a stray dog, but know <br>
@@ -1236,14 +1239,12 @@ and know you will have what you need <br>
 when you need it. I'll be you creed." <br>
 For all this I'll be in Low's debt.
 
-I know Low is the One that can <br>
-give me all my soul wants and needs. <br>
-I will have to do some good deeds, <br>
-and to keep to Low's wills and plan.
-
 Low said: "You shouldn't get lost in hell <br>
 if you don't like hell. Trust My voice, <br>
 know that to serve Me is your choice. <br>
 Know your place, and all will be well."
 
-[...]
+When Low's self as a God will show, <br>
+then the face of Low will be God's face, <br>
+and Low will know and take God's place. <br>
+All doubts will be banned by Low's glow.
