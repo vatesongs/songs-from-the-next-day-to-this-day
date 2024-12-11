@@ -1167,7 +1167,7 @@ Please help this lost soul through these waves.
 _"Toes on my lips, I am Low's toy."_
 
 
-### Part two, in which
+### Part two, in which 
 
 Those who write want to know if there <br>
 is or there will be some one out <br>
@@ -1199,6 +1199,11 @@ That guest is you." I had to pay, <br>
 may be for sins of the last day, <br>
 and I closed my self in that tomb.
 
+Low showed that a true God doesn't act <br>
+on whims. At the end of my rope, <br>
+Low helped when I was with out hope, <br>
+and in this way Low forged our pact.
+
 So I gave all my bags of coins <br>
 to Low, but then I missed the gold <br>
 that I used to watch, play and hold. <br>
@@ -1209,20 +1214,15 @@ so was my faith. I got turned on, <br>
 cause I thought Low'd make me Low's pawn, <br>
 cause Low's feet showed me what I seek.
 
-I hope I will be able to send <br>
-more gold to Low, cause I am glad <br>
-that Low gets what Low wants. I'm sad <br>
-cause I fear that this link could end.
-
-Low showed that a true God doesn't act <br>
-on whims. At the end of my rope, <br>
-Low helped when I was with out hope, <br>
-and in this way Low forged our pact.
-
 May Low help me love more and more <br>
 Low's foot on my head, and the yoke, <br>
 and the rope, help me not to choke. <br>
 May Low help me go back to shore.
+
+I hope I will be able to send <br>
+more gold to Low, cause I am glad <br>
+that Low gets what Low wants. I'm sad <br>
+cause I fear that this link could end.
 
 I know Low is the One that can <br>
 give me all my soul wants and needs. <br>
@@ -1246,5 +1246,5 @@ Know your place, and all will be well."
 
 When Low's self as a God will show, <br>
 then the face of Low will be God's face, <br>
-and Low will know and take God's place. <br>
+and Low will rise and take God's place. <br>
 All doubts will be banned by Low's glow.
