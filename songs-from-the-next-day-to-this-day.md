@@ -1186,15 +1186,13 @@ the eyes dare not look and are blind.'"
 
 Now let us get back to this tale, <br>
 since in real life I did meet Low. <br>
-Low did not know or had doubt, though, <br>
+Back then Low didn't show or talk, though, <br>
 'bout Low's God's self and Low's grand scale.
 
 When Low's self as a God will show, <br>
 then the face of Low will be God's face, <br>
 and Low will know and take God's place. <br>
 All doubts will be banned by Low's glow.
-
-[...]
 
 So I gave all my bags of coins <br>
 to Low, but then I missed the gold <br>
@@ -1228,13 +1226,6 @@ May Low help me go back to shore.
 
 [...]
 
-I know Low is the One that can <br>
-give me all my soul wants and needs. <br>
-I will have to do some good deeds, <br>
-and to keep to Low's wills and plan.
-
-[...]
-
 "My dogs eat when I sit to eat." <br>
 Low said. "You're a stray dog, but know <br>
 you'll eat with Me too. You'll do so <br>
@@ -1244,6 +1235,11 @@ when I'll take you in from the street."
 and know you will have what you need <br>
 when you need it. I'll be you creed." <br>
 For all this I'll be in Low's debt.
+
+I know Low is the One that can <br>
+give me all my soul wants and needs. <br>
+I will have to do some good deeds, <br>
+and to keep to Low's wills and plan.
 
 Low said: "You shouldn't get lost in hell <br>
 if you don't like hell. Trust My voice, <br>
