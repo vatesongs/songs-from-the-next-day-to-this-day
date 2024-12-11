@@ -1196,22 +1196,25 @@ All doubts will be banned by Low's glow.
 
 [...]
 
-Low says: "That night I saw My guest <br>
+So I gave all my bags of coins <br>
+to Low, but then I missed the gold <br>
+that I used to watch, play and hold. <br>
+Was it cause of my heart or loins.
+
+So I told Low that I was weak, <br>
+so was my faith. I got turned on, <br>
+cause I thought Low'd make me Low's pawn, <br>
+cause Low's feet showed me what I seek.
+
+Low said: "This night I saw My guest <br>
 with an old dress, feet full of dirt. <br>
 He was full of shame, his soul hurt <br>
 for his wrong acts, so he went to rest,"
 
 "With his head down, to the cold room. <br>
-That guest is you." I have to pay, <br>
+That guest is you." I had to pay, <br>
 may be for sins of the last day, <br>
-so I closed my self in that tomb.
-
-[...]
-
-So I gave all my bags of coins <br>
-to Low, but then I missed the gold <br>
-that I used to watch, play and hold. <br>
-Was it cause of my heart or loins.
+and I closed my self in that tomb.
 
 I hope I will be able to send <br>
 more gold to Low, cause I am glad <br>
@@ -1223,10 +1226,7 @@ Low's foot on my head, and the yoke, <br>
 and the rope, help me not to choke. <br>
 May Low help me go back to shore.
 
-So I told Low that I am weak, <br>
-so is my faith. Now I'm turned on, <br>
-cause I think Low'll make me Low's pawn, <br>
-cause Low's feet showed me what I seek.
+[...]
 
 I know Low is the One that can <br>
 give me all my soul wants and needs. <br>
@@ -1245,7 +1245,7 @@ and know you will have what you need <br>
 when you need it. I'll be you creed." <br>
 For all this I'll be in Low's debt.
 
-Low says: "You shouldn't get lost in hell <br>
+Low said: "You shouldn't get lost in hell <br>
 if you don't like hell. Trust My voice, <br>
 know that to serve Me is your choice. <br>
 Know your place, and all will be well."
