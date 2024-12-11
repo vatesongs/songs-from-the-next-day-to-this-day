@@ -1167,7 +1167,7 @@ Please help this lost soul through these waves.
 _"Toes on my lips, I am Low's toy."_
 
 
-### Part two, in which 
+### Part two, in which "I" bows to Low
 
 Those who write want to know if there <br>
 is or there will be some one out <br>
