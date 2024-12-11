@@ -1209,7 +1209,7 @@ so I closed my self in that tomb.
 [...]
 
 So I gave all my bags of coins <br>
-to Low, but now I miss the gold <br>
+to Low, but then I missed the gold <br>
 that I used to watch, play and hold. <br>
 Was it cause of my heart or loins.
 
