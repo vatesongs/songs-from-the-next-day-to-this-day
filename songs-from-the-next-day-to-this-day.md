@@ -1248,3 +1248,7 @@ When Low's self as a God will show, <br>
 then the face of Low will be God's face, <br>
 and Low will rise and take God's place. <br>
 All doubts will be banned by Low's glow.
+
+<img src="svg/book4-part2.svg" width="500" />
+
+_"So I told Low that I was weak."_
