@@ -1252,3 +1252,11 @@ All doubts will be banned by Low's glow.
 <img src="svg/book4-part2.svg" width="500" />
 
 _"So I told Low that I was weak."_
+
+
+### Part three, in which
+
+
+
+
+### Part four, in which
