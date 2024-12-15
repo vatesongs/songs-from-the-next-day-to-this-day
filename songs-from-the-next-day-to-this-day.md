@@ -14,7 +14,7 @@ This tale, let me know how to sing.
 That was the place, or so it seems. <br>
 "Look there, you shall find the last cause. <br>
 There you shall read what is, what was, <br>
-what will be. You shall see their dreams."
+what will be. You shall see Their dreams."
 
 I sat, eyes closed, my breath took me, <br>
 and my face went in to the light, <br>
@@ -38,7 +38,7 @@ that lurks, barks and gives me no peace.
 
 At night I would sit with my cheek <br>
 on my fist. I would wait for You, <br>
-one day they will do the same too. <br>
+one day the folks'll do the same too. <br>
 From me the kind love of the weak.
 
 If I look back and think the way, <br>
@@ -186,12 +186,12 @@ _"Once She sent Her four slaves to trick."_
 She rose. The cracks were heard for years, <br>
 vast and mute She rose from Her soles, <br>
 the Gods' gift, the ruin of the souls. <br>
-There on Earth they weeped and shed tears.
+On Earth the folks weeped and shed tears.
 
 The sky fell on Earth, it was night. <br>
 Some didn't know what hit, all was blurred, <br>
 and they were gone with out a word. <br>
-There She was queen with out a fight.
+There She was, queen with out a fight.
 
 He sat and asked and prayed and thought: <br>
 "She is my drug, She is my light, <br>
@@ -659,7 +659,7 @@ I saw Her and fell on my knees. <br>
 Now, back where Her slaves say their prayer.
 
 With its dumb smile and its strange hat, <br>
-'round that town I can meet the dog, <br>
+in that town I can meet the dog, <br>
 called as well Sir Bitch or the hog. <br>
 Now Sir Bitch thinks I'm Her floor mat.
 
@@ -731,7 +731,7 @@ _"The snake took the stairs and went home."_
 
 
 
-### Part one, in which we have a chat
+### Part one, in which They want to chat
 
 
 "These are signs and dreams of the next day. <br>
@@ -802,7 +802,7 @@ But when I fall He sees me crawl.
 "Of course it was such a hard chore, <br>
 and all folks know that, man, no doubt. <br>
 But now you've got to chill out, <br>
-you can't still be such a huge bore."
+how can you still be such a bore."
 
 "You tried all things to stop the fall. <br>
 You fell, now you fly with your wit. <br>
@@ -816,11 +816,11 @@ But know that the pit got Them all."
 
 <img src="svg/book3-part1.svg" width="500" />
 
-_"You can't still be such a huge bore."_
+_"How can you still be such a bore."_
 
 
 
-### Part two, in which we talk 'bout signs
+### Part two, in which It talks 'bout signs
 
 
 It says: "Once you looked at His hands, <br>
