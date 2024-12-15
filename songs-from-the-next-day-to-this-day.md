@@ -86,6 +86,7 @@ I will watch her face and not Yours, <br>
 I will kiss her lips and not Yours, <br>
 and I will see You in her eyes.
 
+
 <img src="svg/book1-part1.svg" width="500" />
 
 _"My face was lost in to the white."_
@@ -262,7 +263,6 @@ This tale was and once more will be, <br>
 'cause Time is round and still goes round. <br>
 Each turn is a stance of what's bound, <br>
 our face whirls down in to that sea. <br>
-
 
 
 <img src="svg/book1-part3.svg" width="500" />
@@ -449,7 +449,6 @@ and add more terms to this list key. <br>
 For Her: "Dog, snake, man." Then "imp" state.
 
 
-
 <img src="svg/book2-part1.svg" width="500" />
 
 _"You'll eat the head of a live snake."_
@@ -539,7 +538,6 @@ lurks and stalks. It stays on the sides, <br>
 in to the acts with out a cause.
 
 
-
 <img src="svg/book2-part2.svg" width="500" />
 
 _"He thought of Her, She thought of Him."_
@@ -627,7 +625,6 @@ with out cave, wall, sun, forms, or slave."
 that man can have more than one face. <br>
 With this in mind, look at that place: <br>
 there is no end to what you can."
-
 
 
 <img src="svg/book2-part3.svg" width="500" />
@@ -814,6 +811,7 @@ fore see your ruin your life your mess <br>
 with a mind full of strife and stress. <br>
 But know that the pit got Them all."
 
+
 <img src="svg/book3-part1.svg" width="500" />
 
 _"How can you still be such a bore."_
@@ -988,9 +986,11 @@ He had a nice smile, the right guy, <br>
 he shook my hand and said good bye. <br>
 Did You send her to test my feels.
 
+
 <img src="svg/book3-part3.svg" width="500" />
 
 _"Once I met a cute girl for sale."_
+
 
 
 ### Part four, in which we see the beast
@@ -1077,10 +1077,15 @@ In this way he won't have to prey. <br>
 Such will be the long peace with Them."
 
 
+
+
+
 ## Book four, known as the book of Low
 
 
+
 ### Part one, where we find Low is You
+
 
 Low is the name and Low is high <br>
 and cute like some lil' girl or boy. <br>
@@ -1169,6 +1174,7 @@ _"Toes on my lips, I am Low's toy."_
 
 ### Part two, in which "I" bows to Low
 
+
 Those who write want to know if there <br>
 is or there will be some one out <br>
 there that can get these lines. They doubt. <br>
@@ -1249,9 +1255,11 @@ then the face of Low will be God's face, <br>
 and Low will rise and take God's place. <br>
 All doubts will be banned by Low's glow.
 
+
 <img src="svg/book4-part2.svg" width="500" />
 
 _"So I told Low that I was weak."_
+
 
 
 ### Part three, in which
