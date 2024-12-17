@@ -1265,6 +1265,12 @@ _"So I told Low that I was weak."_
 ### Part three, in which
 
 
+Now those who write ask from the heart: <br>
+"How can we talk 'bout the real 'I', <br>
+the one that can't and will not die, <br>
+the one that death can't take or part."
+
+
 
 
 ### Part four, in which
