@@ -1270,6 +1270,16 @@ Now those who write ask from the heart: <br>
 the one that can't and will not die, <br>
 the one that death can't take or part."
 
+Low says: "On the back of the hill, <br>
+there was a mine in a past age. <br>
+That chasm you saw was a stone cage, <br>
+the folks where there to break and drill."
+
+"Once I was there in to my slave <br>
+the snake, and I made the folks work <br>
+with my whip, gave pain with a jerk <br>
+of my hand. Such joy in that cave."
+
 
 
 
