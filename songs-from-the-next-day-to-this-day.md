@@ -1280,7 +1280,10 @@ the snake, and I made the folks work <br>
 with my whip, gave pain with a jerk <br>
 of my hand. Such joy in that cave."
 
-
+"What a joy to use that long tool, <br>
+to light that fine whip with My strokes <br>
+on the scorched skins of those low folks. <br>
+What a sex like feel it is to rule."
 
 
 ### Part four, in which
