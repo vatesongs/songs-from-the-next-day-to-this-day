@@ -1285,5 +1285,34 @@ to light that fine whip with My strokes <br>
 on the scorched skins of those low folks. <br>
 What a sex like feel it is to rule."
 
+"With My fist, give pain to those slaves. <br>
+There They were with me." Low is She, <br>
+He, It. Low's what Low wants to be. <br>
+Low's They. Low put folks in their graves.
+
+[...]
+
+"She's who She is and has to be, <br>
+她是天使," He says. She wiles: <br>
+"It's just Me and you here", She smiles. <br>
+But He's still there. I know Low's She,
+
+'Cause She puts Her foot on my face, <br>
+pressed on my mouth, and looks at Him. <br>
+He says: "You must bow to Her whim." <br>
+That's how He puts me in my place.
+
+'Cause I work for Him, He's my boss. <br>
+He's like a dad. And He is Low, <br>
+'cause He walks with me when I'm slow, <br>
+and tells me the cause of my loss.
+
+Low's It when It says: "You can do <br>
+what you want, it's how you do it. <br>
+What you say, it's how you say it. <br>
+Think 'bout that, then you can be true."
+
+
+
 
 ### Part four, in which
