@@ -1312,12 +1312,20 @@ what you want, it's how you do it. <br>
 What you say, it's how you say it. <br>
 Think 'bout that, then you can be true."
 
+Low gives signs and dreams to the folks, <br>
+so they can make and burn their fire. <br>
+Low's They, when They say to aim higher, <br>
+or choose if a folk thrives or chokes.
+
 [...]
 
 Not all those that go 'round are lost, <br>
 not all those that are lost go 'round, <br>
 like I did. Low showed me I'm bound. <br>
 I'll get free, but it'll have a cost.
+
+
+
 
 
 ### Part four, in which
