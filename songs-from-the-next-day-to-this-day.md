@@ -1319,6 +1319,13 @@ or choose if a folk thrives or chokes.
 
 [...]
 
+Low showed Low's true self in a dream. <br>
+There Low was as tall as ten guys, <br>
+looked down and took me to those highs, <br>
+in a hand as large as a beam.
+
+[...]
+
 Not all those that go 'round are lost, <br>
 not all those that are lost go 'round, <br>
 like I did. Low showed me I'm bound. <br>
