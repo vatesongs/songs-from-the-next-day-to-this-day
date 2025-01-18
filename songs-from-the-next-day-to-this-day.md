@@ -1331,7 +1331,12 @@ not all those that are lost go 'round, <br>
 like I did. Low showed me I'm bound. <br>
 I'll get free, but it'll have a cost.
 
+[...]
 
+Low'll show me where to find my ring, <br>
+the one that a gum girl did pull. <br>
+I think of Low, my heart is full <br>
+of love, should I fall for my king.
 
 
 
