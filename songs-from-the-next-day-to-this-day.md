@@ -1262,7 +1262,7 @@ _"So I told Low that I was weak."_
 
 
 
-### Part three, in which
+### Part three, in which "I" falls for Low
 
 
 Now those who write ask from the heart: <br>
@@ -1290,8 +1290,6 @@ There They were with me." Low is She, <br>
 He, It. Low's what Low wants to be. <br>
 Low's They. Low put folks in their graves.
 
-[...]
-
 "She's who She is and has to be, <br>
 她是天使," He says. She wiles: <br>
 "It's just Me and you here", She smiles. <br>
@@ -1317,26 +1315,35 @@ so they can make and burn their fire. <br>
 Low's They, when They say to aim higher, <br>
 or choose if a folk thrives or chokes.
 
-[...]
-
 Low showed Low's true self in a dream. <br>
 There Low was as tall as ten guys, <br>
 looked down and took me to those highs, <br>
 in a hand as large as a beam.
-
-[...]
 
 Not all those that go 'round are lost, <br>
 not all those that are lost go 'round, <br>
 like I did. Low showed me I'm bound. <br>
 I'll get free, but it'll have a cost.
 
-[...]
-
 Low'll show me where to find my ring, <br>
 the one that a gum girl did pull. <br>
 I think of Low, my heart is full <br>
 of love, should I fall for my king.
+
+Low tells me to fall on my sword. <br>
+Now of my self is left a ghost, <br>
+and just that void ghost Low will host, <br>
+a foul worm left to praise my lord.
+
+I ask: "Is this one the last fall, <br>
+the last one in to the dark pit, <br>
+the long one where I lose my wit, <br>
+that ends when I will hit the wall."
+
+"Or I’ll get a chance more to live, <br>
+a day more to wait, fight, and fall, <br>
+with mad feels and thoughts." Low, I call. <br>
+Low, I beg some more air to give.
 
 
 
