@@ -1340,7 +1340,7 @@ the last one in to the dark pit, <br>
 the long one where I lose my wit, <br>
 that ends when I will hit the wall."
 
-"Or I’ll get a chance more to live, <br>
+"Or I'll get a chance more to live, <br>
 a day more to wait, fight, and fall, <br>
 with mad feels and thoughts." Low, I call. <br>
 Low, I beg some more air to give.
@@ -1348,3 +1348,29 @@ Low, I beg some more air to give.
 
 
 ### Part four, in which
+
+
+"Know that if you beg for the axe, <br>
+I will kill you with out a feel. <br>
+What a sad thing to hear you squeal, <br>
+when with My words I crush your sacs,"
+
+Low says. "I'll show that you are weak. <br>
+that you are a toy in my hands, <br>
+with My words you'll fall in the sands. <br>
+You are a wuss each time you speak,"
+
+"And you bug Me with dumb thoughts. <br>
+You must know your place, in the ground. <br>
+There I'll bless you and keep you bound, <br>
+quiet at My feet, free in those knots."
+
+I have to beg, 'cause I can't live <br>
+with out Low's voice, 'cause I crave <br>
+the food of Low, 'cause I'm Low's slave. <br>
+"Please Low, let me pass through Your sieve."
+
+When I'm in Low's light with three sides, <br>
+the drug goes to the bod and brain. <br>
+I don't feel grief or fear or pain, <br>
+and the thought of my last fall hides.
