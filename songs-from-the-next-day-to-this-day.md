@@ -1374,3 +1374,8 @@ When I'm in Low's light with three sides, <br>
 the drug goes to the bod and brain. <br>
 I don't feel grief or fear or pain, <br>
 and the thought of my last fall hides.
+
+At mid night to my Lord I ask <br>
+what is the new path when I fall. <br>
+Low says: "You'll give to Me it all, <br>
+and let go of it. That's your task."
