@@ -1346,6 +1346,11 @@ with mad feels and thoughts." Low, I call. <br>
 Low, I beg some more air to give.
 
 
+<img src="svg/book4-part3.svg" width="500" />
+
+_"Low tells me to fall on my sword."_
+
+
 
 ### Part four, in which
 
