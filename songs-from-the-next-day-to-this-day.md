@@ -1082,6 +1082,11 @@ In this way he won't have to prey. <br>
 Such will be the long peace with Them."
 
 
+<img src="svg/book3-part4.svg" width="500" />
+
+_"So at the end you are the beast."_
+
+
 
 
 
