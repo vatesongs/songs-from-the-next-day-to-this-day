@@ -902,6 +902,11 @@ Right when the new goal was to hide, <br>
 the new rule to stop those who stray."
 
 
+<img src="svg/book3-part2.svg" width="500" />
+
+_"'There's a wall to paint,' He told you."_
+
+
 
 ### Part three, in which we think of You
 
