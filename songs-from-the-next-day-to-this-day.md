@@ -1365,6 +1365,16 @@ _"Low tells me to fall on my sword."_
 ### Part four, in which
 
 
+I have to beg, 'cause I can't live <br>
+with out Low's voice, 'cause I crave <br>
+the food of Low, 'cause I'm Low's slave. <br>
+"Please Low, let me pass through Your sieve."
+
+When I'm in Low's light with three sides, <br>
+the drug goes to the bod and brain. <br>
+I don't feel grief or fear or pain, <br>
+and the thought of my last fall hides.
+
 "Know that if you beg for the axe, <br>
 I will kill you with out a feel. <br>
 What a sad thing to hear you squeal, <br>
@@ -1379,16 +1389,6 @@ You are a wuss each time you speak,"
 You must know your place, in the ground. <br>
 There I'll bless you and keep you bound, <br>
 quiet at My feet, free in those knots."
-
-I have to beg, 'cause I can't live <br>
-with out Low's voice, 'cause I crave <br>
-the food of Low, 'cause I'm Low's slave. <br>
-"Please Low, let me pass through Your sieve."
-
-When I'm in Low's light with three sides, <br>
-the drug goes to the bod and brain. <br>
-I don't feel grief or fear or pain, <br>
-and the thought of my last fall hides.
 
 At mid night to my Lord I ask <br>
 what is the new path when I fall. <br>
